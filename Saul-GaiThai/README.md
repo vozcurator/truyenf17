@@ -3,33 +3,39 @@
 <!-- toc -->
 
 - [Gioi thieu](#gioi-thieu)
-  * [Chuyen tinh cam cua toi](#chuyen-tinh-cam-cua-toi)
-    + [Ngoai truyen - Chuyen tinh cam cua toi - p1](#ngoai-truyen---chuyen-tinh-cam-cua-toi---p1)
-    + [Ngoai truyen - Chuyen tinh cam cua toi - p2](#ngoai-truyen---chuyen-tinh-cam-cua-toi---p2)
-    + [Ngoai truyen - Chuyen tinh cam cua toi - p3](#ngoai-truyen---chuyen-tinh-cam-cua-toi---p3)
-    + [Ngoai truyen - Chuyen tinh cam cua toi - p4](#ngoai-truyen---chuyen-tinh-cam-cua-toi---p4)
-- [Chap 1 - Vao de](#chap-1---vao-de)
-  * [Ngoai truyen - Minh khong phai natuan dau](#ngoai-truyen---minh-khong-phai-natuan-dau)
-- [Nha co be](#nha-co-be)
-- [Doi song tinh duc cua chung toi](#doi-song-tinh-duc-cua-chung-toi)
-- [Loi de nghi ky la](#loi-de-nghi-ky-la)
+  * [Chuyện tình cảm của tôi](#chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi)
+    + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi)
+    + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi-1)
+    + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi-2)
+    + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi-3)
+- [Chap 1 - Vào Đề](#chap-1---vao-d%E1%BB%81)
+  * [Ngoại truyện - Mình không phải NaTuan đâu](#ngo%E1%BA%A1i-truy%E1%BB%87n---minh-khong-ph%E1%BA%A3i-natuan-dau)
+- [Nhà cô bé](#nha-co-be)
+- [Đời sống tình dục của chúng tôi](#d%E1%BB%9Di-s%E1%BB%91ng-tinh-d%E1%BB%A5c-c%E1%BB%A7a-chung-toi)
+- [Lời đề nghị kì lạ](#l%E1%BB%9Di-d%E1%BB%81-ngh%E1%BB%8B-ki-l%E1%BA%A1)
   * [Ngoai truyen - Ham rang cua em no](#ngoai-truyen---ham-rang-cua-em-no)
-- [Chuyen di](#chuyen-di)
-- [Nguoi cau](#nguoi-cau)
-- [Mam co](#mam-co)
-- [Thay cung va lan tro chuyen dau tien](#thay-cung-va-lan-tro-chuyen-dau-tien)
+- [Chuyến đi](#chuy%E1%BA%BFn-di)
+- [Ngời cậu](#ng%E1%BB%9Di-c%E1%BA%ADu)
+- [Mâm cỗ](#mam-c%E1%BB%97)
+- [Thầy cúng - Lần trò chuyện đầu tiên](#th%E1%BA%A7y-cung---l%E1%BA%A7n-tro-chuy%E1%BB%87n-d%E1%BA%A7u-tien)
   * [Ngoai truyen - Vi sao bai viet lau len](#ngoai-truyen---vi-sao-bai-viet-lau-len)
-- [Binh minh](#binh-minh)
+- [Bình Minh](#binh-minh)
   * [Ngoai truyen - Vi sao toi viet truyen nay](#ngoai-truyen---vi-sao-toi-viet-truyen-nay)
-- [Cho huyen](#cho-huyen)
+- [Chợ huyện](#ch%E1%BB%A3-huy%E1%BB%87n)
   * [Ngoai truyen - Vi sao toi viet truyen nay](#ngoai-truyen---vi-sao-toi-viet-truyen-nay-1)
-- [Duong ve](#duong-ve)
-- [Em oi la em](#em-oi-la-em)
+- [Đường về](#d%C6%B0%E1%BB%9Dng-v%E1%BB%81)
+- ["Em ơi là em"](#em-%C6%A1i-la-em)
   * [Vi sao toi viet truyen nay](#vi-sao-toi-viet-truyen-nay)
   * [Vi sao toi viet truyen nay](#vi-sao-toi-viet-truyen-nay-1)
-- [O khach san](#o-khach-san)
-- [Ban cu](#ban-cu)
-- [Lam toc](#lam-toc)
+- [Ở khách sạn](#%E1%BB%9F-khach-s%E1%BA%A1n)
+- [Bạn cũ](#b%E1%BA%A1n-cu)
+- [Làm tóc](#lam-toc)
+  * [Ngoại truyện - Bản chất không phải là mua dâm](#ngo%E1%BA%A1i-truy%E1%BB%87n---b%E1%BA%A3n-ch%E1%BA%A5t-khong-ph%E1%BA%A3i-la-mua-dam)
+- [Gái trường múa](#gai-tr%C6%B0%E1%BB%9Dng-mua)
+  * [Bên nhau](#ben-nhau)
+  * [Drop _nhưng không drop_](#drop-_nh%C6%B0ng-khong-drop_)
+  * [Bonus - Trong khăn tắm](#bonus---trong-khan-t%E1%BA%AFm)
+- [Tình địch](#tinh-d%E1%BB%8Bch)
 
 <!-- tocstop -->
 
@@ -445,6 +451,78 @@ Tôi ra xe lái về quán bia Legend. Vừa đi vừa nghĩ về việc sắp t
 > Vấn đề là ông kia k mua dâm mà là bỏ một cục rước e này về với mẹ giờ có bắt thì em này cũng trên 16 mà ông kia đâu có trả tiền mỗi lần chịch đâu nên không sợ 
 
 Các anh cứ đọc hết truyện, không có cái gì gọi là mua dâm, cưỡng ép cả. Đơn thuần chỉ là tình yêu đôi lứa và khao khát bản năng.
+
+## [Gái trường múa]()
+
+Lúc tôi tới Legend Beer, biết mình đến hơi muộn tôi nói ngay:
+
+- Xin lỗi cháu tới hơi muộn, tại đường tắc quá. Liếc qua tờ tích kê, đã thấy mỗi người 5 cốc rồi. Ông chú tôi nói :
+- Uhm, thôi đi thẳng vào công việc luôn. Thế này...thế này...
+- Dạ, chú với bố cháu đã quyết thì cháu cứ thực hiện thôi.
+- Ok, thế nâng ly cạn nốt cốc này, chú cũng tới tới rồi, về còn đón em đi học thêm. Hai đứa cứ ngồi lại bàn công việc cụ thể đi nhé.
+
+Cạn xong, ông chú từ biệt, bắt tay thằng T rồi đi luôn. Nó ngồi xuống bảo tôi :
+
+- Việc cụ thể thì hôm nào anh vào Sài Gòn, em dẫn anh đi xem thực địa thì mới bàn cụ thể được, giờ anh em mình làm cốc bia cho hiểu nhau đã.
+
+Nhưng mà, ở đây tối nay không có chương trình gì, buồn quá, anh em mình trẻ mà, qua Sparta ngồi đi anh.
+
+Gì chứ qua đó thì ok luôn, đằng nào bé Linh cũng làm tóc còn lâu, với cả tôi cho số em chủ quán rồi, xong là sẽ gọi. Thằng T rút điện thoại đặt bàn trước, tôi không hiểu nó có là VIp ở đây không. Mà vừa bước ra khỏi thang máy, đã thấy gã béo quản lý đứng đợi và dẫn chúng tôi tới cái bàn gần sân khấu, gần tới nỗi ông nào tinh mắt có thể nhìn rõ cả lông lol các em dancer ở mỗi động tác xoạc chân. Thằng T vừa ngồi xuống, đã thấy hai em dancer xinh nhất vẫy tay chào nó, dù đang nhảy trên bục. Nó gọi luôn 1 tháp bia, tôi nghĩ bụng, đm, vừa chơi hết 5 cốc bên Legend xong, đến đây 2 thằng lại nguyên tháp, thằng này bia lượng cao vl. Thấy thằng bồi bàn mang ra 4 cái cốc, 4 bộ dao dĩa, tôi tưởng thằng T gọi thêm người tới, nhưng không phải hai em dancer trên bục xong ca nhảy lập tức tới bàn chúng tôi. Mỗi em ngồi cạnh 1 thằng, sau màn giới thiệu tôi cũng biết em ngồi cạnh thằng T là Linh, luôn muốn gọi trìu mến là Bống. Tôi mượn tạm ảnh cho các anh dễ hình dung, là em này.
+
+![14589640_705165056304457_3409293197407273608_o.jpg](imgs/14589640_705165056304457_3409293197407273608_o.jpg)
+
+Còn em ngồi cạnh tôi tên là Trang, cứ thích được gọi là Chan Chan. Tuy không xinh sang bốc lửa như em Linh, nhưng lại có cái duyên ngầm rất quyến rũ.
+
+![14711067_705165342971095_3088891899189901727_o.jpg](imgs/14711067_705165342971095_3088891899189901727_o.jpg)o
+
+Hai em đều xuất thân từ Cao đẳng múa Mai Dịch, như quen thằng T từ khá lâu rồi. Chắc các anh sẽ tò mò, ngồi cạnh các em ấy có được làm gì không, ah thì cũng được động chạm nhẹ nhàng kiểu lịch sự thôi, cái Beer club đông tổ bố, sao làm hành động khiếm nhã được. Nhiệm vụ chính của các em ấy, là trò chuyện và bày trò để chúng tôi uống bia vui vẻ. Phải nói rằng các em ấy khá thông minh, nhưng rất tiếc hai thằng chúng tôi lại rất cáo già. Đầu tiên em Trang bày trò Oẳn tù tì, ai bét là phải uống 1/2 cốc, tất nhiên hai thằng chúng tôi toàn nhất nhì, cùng lắm là 3, hai em thay nhau uống. Hai em tức đòi chơi theo đội, em Linh Oẳn tù tì với tôi, tôi thua thì tôi với em Trang chia nhau uống hết cốc, còn không ngược lại. Các em vẫn thua, nhưng lần này phải uống đều. Sau đó lại chơi đầu đít, kết quả cũng vậy. Lúc đi vệ sinh, thằng T đứng cạnh tôi nói :
+
+- Anh dùng chiến thuật chiều kim đồng hồ trò Oẳn tù tì thì sao em Linh của em ăn được.
+- T cũng hỏi linh tinh suốt để đọc nguội em Trang lúc chơi đầu đít đấy thôi .
+
+Hai thằng phá lên cười ha hả, tôi liếc nhìn sang bên nó. Ah, đm chim mày nhỏ hơn bố, mày ghê thật đấy nhưng cũng có cái mày đéo bằng bố. Đắc chí tôi ra rửa tay và ném cho thằng bê đê đứng đưa khăn 50k. Tiền vừa vào giỏ, nó lập tức mở loa :
+
+- Anh ơi, anh có điện thoại kìa.
+
+Ôi thôi đm, vỡ mồm rồi, hơn 10 cuộc gọi nhỡ từ số lạ, có cả tin nhắn. Tôi vội bảo thằng T, lúc này vẫn đang vẩy chim, :
+
+- Thôi chết rồi T ơi, hẹn đi đón bà cô ở ga Hàng Cỏ mà mải vui quên khuấy mất. Tôi chìa cái điện thoại đỏ lòm cuộc gọi nhỡ cho nó xem.
+- Anh đi đi, chốc rồi quay lại, 11h xuống nhạc em hẹn Linh với Trang đi ăn đêm rồi.
+- Thôi, phải đưa bà sang tận Sài Đồng cơ, mình cũng uống tới tới rồi, để khi khác cho thoải mái. T cầm giúp mình chỗ này, chốc cảm ơn em Trang hộ mình.
+- Ahh cứ vớ vẩn, cất đi. Anh cứ đi kẻo muộn, về sớm được thì alo em đợi.
+
+Tôi đi ra, đến quầy thanh toán gọi thanh toán thì thằng nhân viên nó bảo anh T đéo cho anh trả tiền đâu.
+Tôi phi ngay về chỗ làm tóc ở Nguyên Hồng, bé Linh thấy tôi, chạy ra ôm chầm lấy. Tôi bất ngờ quá, lúng túng một lúc rồi cũng ôm lấy nó. Nó nức nở :
+
+- Cháu tưởng chú bỏ cháu rồi.
+- Chú xin lỗi, chú bận đột xuất.
+
+Được động chạm vào da thịt mơm mởn của đứa con gái mới dậy thì, thằng mất dậy phản chú, dâm dục vô đạo dưới quần tôi lập tức biến hình, tì thẳng vào bụng bé Linh. Nó cũng cảm nhận thấy nên hơi lùi lại. Tôi buông nó ra, bước đền quầy xin lỗi và tính tiền, con chủ quán cứ nhìn tôi cười cười, đúng hôm tôi mặc quần kaki co giãn và sịp kiểu boxer nữa. Chắc nó đang nghĩ, chú cháu đéo gì ôm nhau mà chim to lên 1 đống. Tôi đéo biết xấu hổ nên kệ mẹ. Ra xe, bé Linh đã lên ngồi sẵn, nó đã thôi sụt sịt và chuyển sang phụng phịu :
+
+- Sao chú bỏ cháu?
+- Chú xin lỗi rồi mà.
+- Từ giờ chú không được bỏ cháu lại thế nữa, không cháu bỏ về bản đấy.
+
+Ơ cái đm con này, bố thách. Tôi dịu giọng :
+
+- Uhm, thôi ko giận nữa, chú đưa đi mua quần áo mới.
+- Mà chú, cháu cắt tóc xinh không ?
+
+Sáng sủa hơn, mà nhìn như con teen dẩm. Vào kia bố bắt đội khăn với mặc áo Thái không cooc sê. Tôi đưa tay vuốt tóc mái nó :
+- Xinh, ra dáng gái phố rồi.
+
+Rồi trên đường ra Chùa Bộc nó huyên tha huyên thuyên chuyện cắt tóc làm mặt. Đến nơi, đéo hiểu sao tụi HN ko ngủ ah, hơn 10h đêm rồi vẫn nườm nượp đi xem quần áo. Tôi quay sang con bé đã thấy nó dán mắt vào 1 bộ quần áo con ma nơ canh đang mặc, tôi bảo nó :
+
+- Cháu cứ nhờ nhân viên tư vấn cho, thích bộ cứ lấy bộ đấy. 
+
+Nó hớn hở lắm, từ khi gặp nó đến giờ chưa bao giờ tôi thấy nó vui vẻ như lúc này. Nó cứ thử xong 1 bộ lại ra khoe tôi, nhưng lúc thử quần áo lót thì đéo thấy khoe, tộc đéo gì khôn thế. Cuối cùng thì cũng mua đủ cho nó va li, quần áo, giầy dép các kiểu. Qua 1 chỗ góc vỉa hè, thấy nó sà vào nhặt bịch băng vệ sinh, tôi cười hỏi :
+
+- Có biết dùng không thế?
+- Sao không, tháng nào cháu với mợ cháu đều được phát 1 bịch mà.
+
+Ôi đm, nhà nước còn quan tâm đến cả cái máu lol của bà con dân tộc thiểu số. Thế mà tụi Việt Tân cứ ra rả bôi xấu là sao? Ơ mà, đéo phải chứ, tôi nghệt mặt nhìn nó, nó hồn nhiên:
+
+- Cháu bị từ lúc cắt tóc, may cô chủ quán cho cháu 1 cái.
 
 ### [Bên nhau](https://vozforums.com/showpost.php?p=129623417&postcount=1)
 Chẳng hiểu sao thread kia bị delete rồi. Mắc công viết cho mấy anh em đọc thôi thì đăng nốt.
