@@ -587,8 +587,36 @@ Nó hớn hở lắm, từ khi gặp nó đến giờ chưa bao giờ tôi thấ
 
 - Cháu bị từ lúc cắt tóc, may cô chủ quán cho cháu 1 cái.
 
-> Tới đây thì truyện tạm hết, chưa có thông tin gì thêm
->
+### ["Chú muốn cháu làm gì cũng được"](https://vozforums.com/showpost.php?p=141775733&postcount=115)
+
+Tôi cay đắng nghĩ, tối nay ăn máu lol theo nghĩa bóng thật rồi vì đéo dám ăn máu lol theo nghĩa đen. Vâng, quả thật là tôi đủ bệnh hoạn để vượt đèn đỏ như anh nào bên trên vừa khuyên tôi. Nhưng tôi đéo đủ dũng cảm để bỏ qua vấn đề vệ sinh dịch tễ. Cái Linh chưa được chứng nhận vệ sinh an toàn thực phẩm. Các quý anh nghĩ xem, ai mà chắc chắn được nó không đi giao cấu với 1 hoặc nhiều thằng nghiện đã chuyển sang giai đoạn tiêm chích, ở 1 nơi mà ma túy và tình dục dễ dàng hơn trong phim Narcos. Nếu khô ráo, thôi thì mặc áo mưa là yên tâm. Còn nó nhoe nhoét máu như thế này, dẫu có cho tôi cái bao cao su dày như da mặt thằng mod vừa xóa thớt của người anh em khoidang1234, tôi cũng xin quỳ. Sau khi đưa bé Linh đi ăn đêm, tôi đưa cháu về, lòng không khỏi băn khoăn suy nghĩ. Đã hứa sẽ không bỏ cháu rồi, sao mà có thể trốn cháu đi theo tiếng gọi của con chim được. Nhưng cái thằng em tôi, nó chào cờ suốt từ lúc ở quán tóc, cho đến giờ cũng hơn 1 tiếng rồi mà chưa làm lễ hạ cờ, tôi e máu không lưu thông thì... Cứ suy nghĩ miên man thì đã về tới khách sạn. Vừa vào phòng, vệ sinh cá nhân xong xuôi bé Linh đã đòi điện thoại gọi cho mẹ nó. Chắc mẹ nó cũng sốt ruột lắm, nên dù muộn lắm rồi, ngay hồi chuông đầu tiên đã bắt máy, tôi bấm loa ngoài rồi đưa cho nó, nằm cạnh nghe :
+- Con đang ở đâu rồi?
+- Con đang ở Hà Nội với chú Saul.
+- Chú có làm gì con không, đã làm gì con chưa? ( ơ, cái đm).
+- Dạ không, chú tốt lắm, dẫn con đi cắt tóc, mua quần áo nữa, mỗi tội hay bỏ con lại. Nó nói rồi liếc yêu 1 cái sang tôi, tôi thấy khó chịu vì có cảm giác nó đang thích mình.
+- Con cứ theo chú, phải nghe lời chú rồi chú đưa vào với mẹ nhé.
+- Dạ, vào đấy mẹ con mình được ở chung ạ. Thế còn chú Saul.
+- Chú cũng ở cùng đấy luôn.
+- Hay quá, hay mẹ lấy chú ấy đi, chú ấy tốt lắm. ( Con này biết đùa thật, tôi phì cười, mẹ nó cũng cười)
+- Không được, chú ấy chỉ thích người trẻ thôi, trẻ như con ấy. ( Tốt, go on.). Mẹ bảo, mẹ không có tiền đâu, chú ấy là người đã bỏ tiền ra chuộc con khỏi nhà cậu đấy. Nên con là người của chú ấy, còn phải nghe lời, con phải chiều chú ấy khi chú ấy muốn, như ngày xưa mẹ phải chiều...
+- Không, con ghét mẹ.
+Nó ném máy ra giường, chạy vào nhà vệ sinh đóng cửa, hình như để khóc. Tôi cầm lấy máy nói chuyện với mẹ nó :
+- Cậu, xin cậu từ từ nhẹ nhàng, nó còn nhỏ, với cả ngày xưa nó bị chấn động tâm lý vì chuyện ấy. 
+- Tôi có làm gì đâu, chính chị mới là người vội vàng nói ra cho nó biết, lẽ ra hai mẹ con gặp nhau rồi hãy nói thì hơn.
+- vâng, thôi xin cậu, bao giờ cậu đưa con bé vào.
+- Chắc ngày kia, mai tôi phải đưa con bé đi khám sức khỏe. Chị dọn dẹp sạch sẽ cái phòng tôi vẫn để trống rồi bảo thủ quỹ xuất tiền rồi đi mua đồ đạc đầy đủ vào. Thôi tôi đi ngủ đây.
+- Dạ cậu.
+Tôi cúp máy rồi đến bên cửa phòng vệ sinh :
+- Linh, ra đây chú bảo, không hẳn như cháu nghĩ đâu.
+Nó nghẹn ngào, nấc cả lên:
+- Đàn ông các chú toàn là người xấu, người thì bỏ rơi mẹ con cháu ( chắc thằng bố nó), người thì làm nhục cháu ( chắc thằng súc vật lái xe, tao sẽ tìm và lôi mày vào tù), người thì đánh mắng chửi cháu ( chắc thằng cậu), người thì... ( ơ , còn thằng đéo nào nữa, tao đã làm gì mày đâu), người thì... nó ngập ngừng mãi. Tôi liền tiếp lời :
+- Người thì giúp mẹ con cháu gặp lại nhau, lại cho cháu đi làm đẹp, mua bao quần áo đẹp nữa.
+- Nhưng mà bỏ rơi cháu , làm cháu khóc hết nước mắt. Nó gào lên.
+- Đợi có hơn 1 tiếng mà cứ nhắc mãi. Không mở cửa ra chú bỏ đi thật đây. Nó vẫn không mở, tôi đi luôn ra cửa. Tôi bỏ đi thật, chẳng phải vì dọa nó, mà tôi muốn đi thật, đi sang massage chân Hàn Quốc bên kia xem nó có massage chân giữa cho tôi không. Vừa mở cửa phòng bước ra hành lang được vài bước thì thấy nó chạy ra, níu lấy tay tôi, mắt mũi vẫn tèm lem nước mắt nước mũi, đến tội. Tôi được thể, gằn giọng :
+- Bỏ ra.
+Nó không níu tay nữa mà chuyển sang ôm lưng tôi :
+- Cháu xin lỗi, chú đừng đi. Chú đừng bỏ cháu 1 mình, chú muốn cháu làm gì cũng được.
+
 ## [Lan quyên - Câu chuyện Đà Lạt]()
 
 > Đây là một serie bài của bác Saul viết từ tháng 11 năm 2017, liên quan tới một
@@ -652,7 +680,7 @@ Các ông nói tôi chế tôi rất là buồn. Tôi năm nay cũng hơn 30 tu�
 
 ![C83fnl.jpg](imgs/C83fnl.jpg)
 
-## [Tình địch](https://vozforums.com/showpost.php?p=129647173&postcount=25)
+### [Tình địch](https://vozforums.com/showpost.php?p=129647173&postcount=25)
 Thanks bác đã ủng hộ, thôi thì hầu bác nốt câu chuyện.
 Mua xong quần áo cho em nó, tôi lại ra tiệm giặt là ở đầu Nguyễn Văn Cừ giặt lại và sấy khô. Đến tận gần 9h mới xong để về lại khách sạn. Lúc chờ lấy quần áo, tôi cứ nghĩ vẩn vơ, có khi nào em nó sau cơn say và hết cơn giận lại hối hận rồi gọi người yêu đến đón về không, gặp đứa vớ vẩn nó còn vu vạ cho tôi thì bỏ mẹ. Khi về tới khách sạn, mới đỗ xe ngoài sân, em lễ tân đã chạy ra nói ngay với tôi.
 - Có chuyện rồi anh, anh đừng vào thì hơn.
