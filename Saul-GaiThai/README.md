@@ -33,9 +33,10 @@
 - [Làm tóc](#lam-toc)
   * [Ngoại truyện - Bản chất không phải là mua dâm](#ngo%E1%BA%A1i-truy%E1%BB%87n---b%E1%BA%A3n-ch%E1%BA%A5t-khong-ph%E1%BA%A3i-la-mua-dam)
 - [Gái trường múa](#gai-tr%C6%B0%E1%BB%9Dng-mua)
-- [Bên nhau](#ben-nhau)
-- [Drop _nhưng không drop_](#drop-_nh%C6%B0ng-khong-drop_)
-- [Bonus - Trong khăn tắm](#bonus---trong-khan-t%E1%BA%AFm)
+- [Ngoại truyện - Câu chuyện Đà Lạt](#ngo%E1%BA%A1i-truy%E1%BB%87n---cau-chuy%E1%BB%87n-da-l%E1%BA%A1t)
+  * [Bên nhau](#ben-nhau)
+  * [Drop _nhưng không drop_](#drop-_nh%C6%B0ng-khong-drop_)
+  * [Bonus - Trong khăn tắm](#bonus---trong-khan-t%E1%BA%AFm)
 - [Tình địch](#tinh-d%E1%BB%8Bch)
 
 <!-- tocstop -->
@@ -90,6 +91,11 @@ tập nữa
 
 
 ### Chuyện tình cảm của tôi
+
+> Phần này được bác Saul viết trong topic [Thằng bạn bị đồng nghiệp cắm sừng!](https://vozforums.com/showthread.php?t=6856729)
+Trong topic, bác Saul có chia sẻ nhiều hơn về góc nhìn cũng như tình duyên của
+bác, nhưng thiết nghĩ mọi thứ không liên quan nhiều tới câu chuyện ở đây lắm,
+nên chúng tôi chỉ tạm trích ra một đoạn ngắn.
 
 #### [Ngoại Truyện - Chuyện tình cảm của tôi](https://vozforums.com/showthread.php?p=134444253#post134444253)
 
@@ -589,7 +595,7 @@ lại thấy khó có thể tách ra làm 1 truyện riêng, nên đành để t
 > Cô gái trong này có thể chính là cô gái bác Saul có nhắc đến trong chap **Đời
 sống tình dục của chúng tôi**
 
-## [Bên nhau](https://vozforums.com/showpost.php?p=129623417&postcount=1)
+### [Bên nhau](https://vozforums.com/showpost.php?p=129623417&postcount=1)
 Chẳng hiểu sao thread kia bị delete rồi. Mắc công viết cho mấy anh em đọc thôi thì đăng nốt.
 Vừa tỉnh dậy, mở mắt ra đã thấy cảnh tượng như vậy, tôi không muốn đánh mất khoảnh khắc đấy nên lại nhắm hờ mắt vờ ngủ để ngắm em kỹ hơn. Nheo mắt lại, làm tôi nhìn mọi thứ rõ hơn. Em ngồi đó say sưa sấy quần chíp, ánh nắng ban mai chênh chếch phủ lên vai và ngực em, lấp lánh những giọt nước và từng ngọn lông măng. Tuy chiếc khăn tắm khá rộng nhưng phải ưu tiên che phần dưới nên phía trên chỉ đủ che nhũ hoa, còn nguyên nửa bầu trên trắng nõn lồ lộ dưới ánh nắng. Rõ ràng nó phải đủ to và chắc chắn thế nào mới có thể giữ đc chiếc khăn không tuột xuống. Tôi lướt ánh nhìn xuống dưới, chỉ thấy 1 cặp đùi thon thả và trắng không kém bầu ngực kia, thậm trí còn có thể thấy cả gân xanh nổi lên. Lúc đó tôi không thể ngờ, con bé có khuôn mặt dễ thương tối hôm qua ngồi với tôi, ẩn sau chiếc áo khoác quá size, chiếc quần jean bụi và đôi giày thể thao lại là 1 thân hình đẹp đến thế. Tôi bất giác nuốt nước bọt, hít sâu và thở hắt ra 1 cái. Cô bé quay ra nhìn, tôi vội vàng nhắm hẳn mắt lại, điều chỉnh nhịp thở vờ đang ngủ. Nhưng em đã cất tiếng :
 - Anh dậy rồi ah?
@@ -630,11 +636,11 @@ Mà tôi gặng hỏi nó cũng ko nói. Xong tôi lại sang cửa hàng bán �
 
 ![O3zu7e.jpg](imgs/O3zu7e.jpg)
 
-## [Drop _nhưng không drop_](https://vozforums.com/showpost.php?p=129627893&postcount=10)
+### [Drop _nhưng không drop_](https://vozforums.com/showpost.php?p=129627893&postcount=10)
 
 Các ông nói tôi chế tôi rất là buồn. Tôi năm nay cũng hơn 30 tuổi rồi, cũng vì cái nợ tình duyên mà đến giờ vẫn chưa vợ. Tôi chẳng đẹp trai cũng chẳng xấu trai, da hơn đen, mặt gân guốc nhưng nhẵn nhụi ko mụn, chỉ là cao to, đầu tóc, ăn mặc gọn gàng, có tài ăn nói hài hước 1 chút, hiểu tâm lý phụ nữa 1 chút, có tiền 1 chút, địa vị 1 chút. Quan trọng nữa là vì công việc cho tôi lăn lộn mọi nẻo đường, nên va chạm cuộc sống, xã hội, tình duyên hơn các ông 1 chút. Có nhiều sự kiện trong đời, giờ đang gãy chân buồn chán nằm nhà muốn chia sẻ đôi câu chuyện đời. Tôi viết chuyện có ảnh ọt, địa danh, đôi khi là nhân vật hẳn hoi rõ ràng,các ông tha hồ đối chứng, còn các ông chắc gặp nhiều thằng xạo lìn quá nên đọc truyện đời người khác cái tâm thế nghi kỵ nó làm mất hay đi. Tôi xin phép drop vậy.
 
-## [Bonus - Trong khăn tắm](https://vozforums.com/showpost.php?p=129635049&postcount=18)
+### [Bonus - Trong khăn tắm](https://vozforums.com/showpost.php?p=129635049&postcount=18)
 > Originally Posted by deptraibamsinh  View Post
 
 > khúc đầu thấy có vẻ tự nhiên, thật, khúc sau thì biết là chuyện chế r
