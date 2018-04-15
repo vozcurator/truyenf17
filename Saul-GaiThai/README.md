@@ -82,6 +82,9 @@ buồn. Tôi góp nhặt những post của bác về chuyện tình của mình
 anh em hiểu thêm về những kỷ niệm của bác. Trong truyện của bác, nhiều khi nhắc
 đến những kỷ niệm xưa, chính là những chuyện này
 
+Các chap không được bác Saul đặt tên, tôi tạm đặt theo ngẫu hứng, nếu không vừa
+ý, xin bác Saul bỏ qua cho
+
 > Bắt đầu từ đây, danh xưng "tôi" là của bác Saul, không phải để chỉ người biên
 tập nữa
 
@@ -575,6 +578,17 @@ Nó hớn hở lắm, từ khi gặp nó đến giờ chưa bao giờ tôi thấ
 
 - Cháu bị từ lúc cắt tóc, may cô chủ quán cho cháu 1 cái.
 
+> Tới đây thì truyện tạm hết, chưa có thông tin gì thêm
+>
+## [Ngoại truyện - Câu chuyện Đà Lạt]()
+
+> Đây là một serie bài của bác Saul viết từ tháng 11 năm 2017, liên quan tới một
+cô gái ở Đà Lạt mà bác từng quen. Do nhầm lẫn, tôi đặt vào truyện này, nhưng sau
+lại thấy khó có thể tách ra làm 1 truyện riêng, nên đành để tạm vào đây
+
+> Cô gái trong này có thể chính là cô gái bác Saul có nhắc đến trong chap **Đời
+sống tình dục của chúng tôi**
+
 ## [Bên nhau](https://vozforums.com/showpost.php?p=129623417&postcount=1)
 Chẳng hiểu sao thread kia bị delete rồi. Mắc công viết cho mấy anh em đọc thôi thì đăng nốt.
 Vừa tỉnh dậy, mở mắt ra đã thấy cảnh tượng như vậy, tôi không muốn đánh mất khoảnh khắc đấy nên lại nhắm hờ mắt vờ ngủ để ngắm em kỹ hơn. Nheo mắt lại, làm tôi nhìn mọi thứ rõ hơn. Em ngồi đó say sưa sấy quần chíp, ánh nắng ban mai chênh chếch phủ lên vai và ngực em, lấp lánh những giọt nước và từng ngọn lông măng. Tuy chiếc khăn tắm khá rộng nhưng phải ưu tiên che phần dưới nên phía trên chỉ đủ che nhũ hoa, còn nguyên nửa bầu trên trắng nõn lồ lộ dưới ánh nắng. Rõ ràng nó phải đủ to và chắc chắn thế nào mới có thể giữ đc chiếc khăn không tuột xuống. Tôi lướt ánh nhìn xuống dưới, chỉ thấy 1 cặp đùi thon thả và trắng không kém bầu ngực kia, thậm trí còn có thể thấy cả gân xanh nổi lên. Lúc đó tôi không thể ngờ, con bé có khuôn mặt dễ thương tối hôm qua ngồi với tôi, ẩn sau chiếc áo khoác quá size, chiếc quần jean bụi và đôi giày thể thao lại là 1 thân hình đẹp đến thế. Tôi bất giác nuốt nước bọt, hít sâu và thở hắt ra 1 cái. Cô bé quay ra nhìn, tôi vội vàng nhắm hẳn mắt lại, điều chỉnh nhịp thở vờ đang ngủ. Nhưng em đã cất tiếng :
@@ -626,6 +640,8 @@ Các ông nói tôi chế tôi rất là buồn. Tôi năm nay cũng hơn 30 tu�
 > khúc đầu thấy có vẻ tự nhiên, thật, khúc sau thì biết là chuyện chế r
 
 Ảnh em nó quấn khăn tắm đây, quấn kiểu như thế nay. Ảnh này tôi chụp hôm sau, tối hôm đầu tôi ko dám chụp. Tôi nói thật, các ông mà ủng hộ và bảo vệ giùm tôi topic, tôi đảm bảo văn tôi ko hay, nhưng thật và quan trọng là ảnh ọt chứng thực đầy đủ. Cơ mà các ông chỉ ném đá hội nghị là nhanh, tinh thần nản chẳng viết nổi tiếp ấy.
+
+![C83fnl.jpg](imgs/C83fnl.jpg)
 
 ## [Tình địch](https://vozforums.com/showpost.php?p=129647173&postcount=25)
 Thanks bác đã ủng hộ, thôi thì hầu bác nốt câu chuyện.
