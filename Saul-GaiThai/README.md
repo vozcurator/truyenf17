@@ -34,11 +34,12 @@
   * [Làm tóc](#lam-toc)
     + [Ngoại truyện - Bản chất không phải là mua dâm](#ngo%E1%BA%A1i-truy%E1%BB%87n---b%E1%BA%A3n-ch%E1%BA%A5t-khong-ph%E1%BA%A3i-la-mua-dam)
   * [Gái trường múa](#gai-tr%C6%B0%E1%BB%9Dng-mua)
+  * ["Chú muốn cháu làm gì cũng được"](#chu-mu%E1%BB%91n-chau-lam-gi-cung-d%C6%B0%E1%BB%A3c)
 - [Lan quyên - Câu chuyện Đà Lạt](#lan-quyen---cau-chuy%E1%BB%87n-da-l%E1%BA%A1t)
   * [Bên nhau](#ben-nhau)
   * [Drop _nhưng không drop_](#drop-_nh%C6%B0ng-khong-drop_)
   * [Bonus - Trong khăn tắm](#bonus---trong-khan-t%E1%BA%AFm)
-- [Tình địch](#tinh-d%E1%BB%8Bch)
+  * [Tình địch](#tinh-d%E1%BB%8Bch)
 
 <!-- tocstop -->
 
