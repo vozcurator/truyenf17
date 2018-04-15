@@ -8,32 +8,33 @@
     + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi-1)
     + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi-2)
     + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi-3)
-- [Chap 1 - Vào Đề](#chap-1---vao-d%E1%BB%81)
-  * [Ngoại truyện - Mình không phải NaTuan đâu](#ngo%E1%BA%A1i-truy%E1%BB%87n---minh-khong-ph%E1%BA%A3i-natuan-dau)
-- [Nhà cô bé](#nha-co-be)
-- [Đời sống tình dục của chúng tôi](#d%E1%BB%9Di-s%E1%BB%91ng-tinh-d%E1%BB%A5c-c%E1%BB%A7a-chung-toi)
-- [Lời đề nghị kì lạ](#l%E1%BB%9Di-d%E1%BB%81-ngh%E1%BB%8B-ki-l%E1%BA%A1)
-  * [Ngoại truyện - Mùi vị](#ngo%E1%BA%A1i-truy%E1%BB%87n---mui-v%E1%BB%8B)
-- [Chuyến đi](#chuy%E1%BA%BFn-di)
-- [Ngời cậu](#ng%E1%BB%9Di-c%E1%BA%ADu)
-- [Mâm cỗ](#mam-c%E1%BB%97)
-- [Thầy cúng - Lần trò chuyện đầu tiên](#th%E1%BA%A7y-cung---l%E1%BA%A7n-tro-chuy%E1%BB%87n-d%E1%BA%A7u-tien)
-  * [Ngoại truyện - Vì sao bài viết lâu lên](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-bai-vi%E1%BA%BFt-lau-len)
-- [Bình Minh](#binh-minh)
-  * [Ngoại truyện - Vì sao tôi viết truyện này](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-toi-vi%E1%BA%BFt-truy%E1%BB%87n-nay)
-- [Chợ huyện](#ch%E1%BB%A3-huy%E1%BB%87n)
-  * [Ngoại truyện - Vì sao tôi viết truyện này](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-toi-vi%E1%BA%BFt-truy%E1%BB%87n-nay-1)
-- [Đường về](#d%C6%B0%E1%BB%9Dng-v%E1%BB%81)
-- ["Em ơi là em"](#em-%C6%A1i-la-em)
-  * [Vi sao toi viet truyen nay](#vi-sao-toi-viet-truyen-nay)
-  * [Vi sao toi viet truyen nay](#vi-sao-toi-viet-truyen-nay-1)
-- [Ở khách sạn](#%E1%BB%9F-khach-s%E1%BA%A1n)
-- [Bạn cũ](#b%E1%BA%A1n-cu)
-  * [Ngoại truyện - T và Ninh Thuận](#ngo%E1%BA%A1i-truy%E1%BB%87n---t-va-ninh-thu%E1%BA%ADn)
-- [Làm tóc](#lam-toc)
-  * [Ngoại truyện - Bản chất không phải là mua dâm](#ngo%E1%BA%A1i-truy%E1%BB%87n---b%E1%BA%A3n-ch%E1%BA%A5t-khong-ph%E1%BA%A3i-la-mua-dam)
-- [Gái trường múa](#gai-tr%C6%B0%E1%BB%9Dng-mua)
-- [Ngoại truyện - Câu chuyện Đà Lạt](#ngo%E1%BA%A1i-truy%E1%BB%87n---cau-chuy%E1%BB%87n-da-l%E1%BA%A1t)
+- [Gái Thái](#gai-thai)
+  * [Chap 1 - Vào Đề](#chap-1---vao-d%E1%BB%81)
+    + [Ngoại truyện - Mình không phải NaTuan đâu](#ngo%E1%BA%A1i-truy%E1%BB%87n---minh-khong-ph%E1%BA%A3i-natuan-dau)
+  * [Nhà cô bé](#nha-co-be)
+  * [Đời sống tình dục của chúng tôi](#d%E1%BB%9Di-s%E1%BB%91ng-tinh-d%E1%BB%A5c-c%E1%BB%A7a-chung-toi)
+  * [Lời đề nghị kì lạ](#l%E1%BB%9Di-d%E1%BB%81-ngh%E1%BB%8B-ki-l%E1%BA%A1)
+    + [Ngoại truyện - Mùi vị](#ngo%E1%BA%A1i-truy%E1%BB%87n---mui-v%E1%BB%8B)
+  * [Chuyến đi](#chuy%E1%BA%BFn-di)
+  * [Người cậu](#ng%C6%B0%E1%BB%9Di-c%E1%BA%ADu)
+  * [Mâm cỗ](#mam-c%E1%BB%97)
+  * [Thầy cúng - Lần trò chuyện đầu tiên](#th%E1%BA%A7y-cung---l%E1%BA%A7n-tro-chuy%E1%BB%87n-d%E1%BA%A7u-tien)
+    + [Ngoại truyện - Vì sao bài viết lâu lên](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-bai-vi%E1%BA%BFt-lau-len)
+  * [Bình Minh](#binh-minh)
+    + [Ngoại truyện - Vì sao tôi viết truyện này](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-toi-vi%E1%BA%BFt-truy%E1%BB%87n-nay)
+  * [Chợ huyện](#ch%E1%BB%A3-huy%E1%BB%87n)
+    + [Ngoại truyện - Vì sao tôi viết truyện này](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-toi-vi%E1%BA%BFt-truy%E1%BB%87n-nay-1)
+  * [Đường về](#d%C6%B0%E1%BB%9Dng-v%E1%BB%81)
+  * ["Em ơi là em"](#em-%C6%A1i-la-em)
+    + [Ngoại truyện - Vợ lẽ](#ngo%E1%BA%A1i-truy%E1%BB%87n---v%E1%BB%A3-l%E1%BA%BD)
+    + [Ngoại truyện - Ăn chơi ở Tây Bắc](#ngo%E1%BA%A1i-truy%E1%BB%87n---an-ch%C6%A1i-%E1%BB%9F-tay-b%E1%BA%AFc)
+  * [Ở khách sạn](#%E1%BB%9F-khach-s%E1%BA%A1n)
+  * [Bạn cũ](#b%E1%BA%A1n-cu)
+    + [Ngoại truyện - T và Ninh Thuận](#ngo%E1%BA%A1i-truy%E1%BB%87n---t-va-ninh-thu%E1%BA%ADn)
+  * [Làm tóc](#lam-toc)
+    + [Ngoại truyện - Bản chất không phải là mua dâm](#ngo%E1%BA%A1i-truy%E1%BB%87n---b%E1%BA%A3n-ch%E1%BA%A5t-khong-ph%E1%BA%A3i-la-mua-dam)
+  * [Gái trường múa](#gai-tr%C6%B0%E1%BB%9Dng-mua)
+- [Lan quyên - Câu chuyện Đà Lạt](#lan-quyen---cau-chuy%E1%BB%87n-da-l%E1%BA%A1t)
   * [Bên nhau](#ben-nhau)
   * [Drop _nhưng không drop_](#drop-_nh%C6%B0ng-khong-drop_)
   * [Bonus - Trong khăn tắm](#bonus---trong-khan-t%E1%BA%AFm)
@@ -121,7 +122,9 @@ Yêu 8 -9 năm mà ko cưới thì khó thành lắm. Mà thôi, đời là tr�
 
 Cám ơn bác, chắc chỉ có mẹ mình mới yêu thương mình vô điều kiện thôi bác. Giờ thì mình chỉ tìm 1 cô gái hợp với mình và gia đình mình để cùng nhau xây dựng hạnh phúc thôi.
 
-## [Chap 1 - Vào Đề](https://vozforums.com/showpost.php?p=141610245&postcount=292)
+## Gái Thái
+
+### [Chap 1 - Vào Đề](https://vozforums.com/showpost.php?p=141610245&postcount=292)
 
 
 Cái chuyện của anh ko hiếm, bản thân tôi cũng từng có 1 em giúp việc kiểu như thế. Cách đây 3 năm, khi công ty nhà tôi nhận 1 gói thầu nhỏ ở thủy điện Đạ Dâng, Lâm Đồng. Tôi khi đó ở Hà Nội đang gặp chuyện buồn chán, nên xung phong vào phụ trách công trường luôn. Công ty tôi nhận đào đắp 1 phân nhánh lòng hồ nơi xa nhất, biệt lập nhất, và đặc biệt mùa mưa thì phải tăng bo cano mới ra được. Ở đây đã có sẵn 1 ngôi nhà xây giữa hồ của đội khảo sát ngày xưa đã đầy đủ điện mặt trời và máy lọc nước, muốn ra vào phải có thuyền, thấy biệt lập lại đẹp tôi dùng luôn làm chỗ ở cho tôi và văn phòng công ty, còn anh em công nhân công ty thì ở phía ngoài bãi xe công trình, cách đó vài trăm mét. Thấy anh em làm việc vất vả quá, về lại phải nấu ăn, giặt giũ nên tôi thuê 1 bà trung trung tuổi đang làm phụ hồ của công trình bên cạnh về giặt giũ nấu ăn. Tất nhiên bà ấy rất sướng, vì việc nhẹ mà lương ko giảm. Những lúc rượu say vui chuyện hỏi ra, thì bà bảo bà là người Thái, hồi trẻ làm vợ lẽ cho 1 tay buôn thuốc phiện ở Mai Châu Hòa Bình. Sau chồng bà bị giết chết bên Lào, việc làm ăn do nhà vợ cả thâu tóm quản lý lại, mụ vợ cả quay ra đánh ghen. Bà sợ, 1 hôm trốn theo gã lái xe tải vào tận Lâm Đồng. Tại đây nó giúp bà mở 1 quán cà phê ngoài Đức Trọng, ăn ở với nhau như vợ chồng có 1 đứa con gái. Tưởng yên ấm thì tay chồng hờ vỡ nợ bị siết cả xe tải, cả quán cà phê, còn nó trốn ra Bắc về lại với vợ con ngoài đó. Bà mang con ra ngoài thuê 1 phòng trọ, bán dâm cho tụi xe tải kiếm tiền sống qua ngày. Một lần từ nhà vệ sinh đi ra thấy thằng khách đang sờ soạn con bé đang ngủ ở võng. Bà sợ quá, gửi con gái về Hòa Bình cho ông bà ngoại chăm. Thôi mệt quá, hôm nào rảnh viết tiếp, có mấy cái ảnh khu công trường cho vui :
@@ -142,7 +145,7 @@ Công trường :
 
 ![Anh056.jpg](imgs/Anh056.jpg)
 
-### [Ngoại truyện - Mình không phải NaTuan đâu](https://vozforums.com/showpost.php?p=141481357&postcount=35)
+#### [Ngoại truyện - Mình không phải NaTuan đâu](https://vozforums.com/showpost.php?p=141481357&postcount=35)
 
 > Originally Posted by uhancomroi  View Post
 
@@ -150,15 +153,15 @@ Công trường :
 
 Ra được thì ông cứ ra luôn đi, thế nào tý nữa cũng có mấy con bệnh vào sủa :" Natuan, natuan" thế là tôi hết mẹ hứng, quit luôn. Tôi kể khá nhiều chuyện đời tôi trên này rồi, mà có chuyện nào viết đầy đủ được đâu.
 
-## [Nhà cô bé](https://vozforums.com/showpost.php?p=141511629&postcount=68)
+### [Nhà cô bé](https://vozforums.com/showpost.php?p=141511629&postcount=68)
 Sau khi con gái về ông bà ngoai, bà đẩy mạnh việc làm ăn,rủ thêm 1 con bé chồng bỏ cùng làm. Suốt mấy năm trời cày cuốc, những tưởng kiếm được cái vốn to thì giải nghệ, mua mảnh đất, mở hàng tạp hóa rồi đón con gái vào. Ai ngờ đâu, nghe con bé kia, hai chị em có bao nhiêu ném vào hụi lấy lời. Được vài tua thì hụi bể, tiền mất. Con kia gần hóa điên lên chùa ở, còn bà lại cắn răng cày cuốc. Nhưng thời thế đã thay đổi, không còn trẻ trung nữa, bán dâm tiền thì ít, lại bị công an và xã hội đen nhảy vào bảo kê thu phế lớn. Đất Đức Trọng lên giá vù vù, tiền thuê nhà theo đó tăng theo. Đến khi cảm thấy làm ko còn đủ đóng phế và thuê nhà nữa, bà bỏ đi làm phụ hồ theo các công trình. Ngày thì trộn vữa, đêm thì bán dâm cho tụi thợ xây, lấy 50 -100k. Lại không mất tiền ăn ở, trừ chi tiêu các thứ tháng cũng để ra được 3-4 triệu. Làm được mấy tháng thì tết, dư hơn chục triệu, bà nhớ con nên tết đó về quê. Về đến nơi mới hay tin con gái, lúc này đã 16 tuổi sắp bị gả bán cho người ta. Nguyên do là thế này, con bé về ngoại được mấy năm thì ông bà ngoại lần lượt qua đời, phải ở cùng vợ chồng nhà cậu ruột. Ông cậu rượu chè cờ bạc nợ người ta 60 triệu, chủ nợ đến đòi, thấy ko còn gì đáng giá ngoài đứa cháu gái đến tuổi lấy chồng, nên bắt thằng cậu làm giấy nhận đứa cháu làm con nuôi. Tập tục của người Thái, sính lễ nhà trai rất bạc, nhưng con gái về nhà chồng thì phải có của hồi môn rất nhiều. Thành ra dù ghét nhau nhưng con gái Thái nhà nghèo vẫn bị buộc phải lấy con trai người Mông. Vì người Mông thì ngược lại, sính lễ để cưới được vợ phải rất hậu, có khi lên tới 2-3 con trâu. Chủ nợ nhận đứa cháu làm con nuôi để được toàn quyền ép gả cho 1 gia đình người Mông giàu có và nhận sính lễ đặng mà trừ khoản nợ của thằng cậu. Bà về thấy con gái mình vậy quyết không chịu, vì những người dân tộc đã thoát ly khỏi bản làng rồi, chẳng muốn con cái mình phải quay về nơi đấy. Nhưng không thể làm gì được, thằng cậu lấy cớ công nuôi cháu bao năm giờ nó phải có quyền gả bán, nếu không phải trả nó tiền nuôi dậy. Tiền thì đâu ra? bà mua cho con gái chỉ vàng dặn khâu dưới vạt áo, sau này cần thì dùng rồi lủi thủi về laị Lâm Đồng, dạt về công trình hồ thủy điện Đạ Dâng và làm cho tôi như phần trên đã nói.
 Đây nhà thằng cậu của em nó, mà tôi phải ra tận nơi, vào tận bản chồng đủ 65 triệu + 5 triệu làm mấy mâm cơm cúng con ma nhà nó, mời thằng thầy mo đến hít thuốc phiện và múa hương quanh đầu. Đm, nhà nghèo kiết xác.
 ![IMG_0139fe913.jpg](imgs/IMG_0139fe913.jpg)
 
-## [Đời sống tình dục của chúng tôi](https://vozforums.com/showpost.php?p=141516469&postcount=77)
+### [Đời sống tình dục của chúng tôi](https://vozforums.com/showpost.php?p=141516469&postcount=77)
 Qua câu chuyện của bà kia thì chắc các bác cũng biết bà ấy ko chỉ làm tạp vụ bình thường ở công trường của tôi. Đúng như các bác nghĩ đấy. Bà ấy làm được mấy hôm thì thấy tụi công nhân vác gỗ, vác tôn hò nhau làm 1 cái nhà kho. Tôi hỏi thì chúng nó bảo, tụi em làm cái nhà kho để dụng cụ, phi dầu tránh nắng mưa. Con bà chúng mày, tự nhiên ý thức trách nhiệm thế, mọi khi hò rát cổ dụng cụ xe nào để về xe đấy mà chúng nó còn đéo nghe, mà nhà kho đéo gì lại có cái phản gỗ với cái đệm 1m2. Y như rằng đêm đéo nào cũng lục cục ở đó, có hôm vào tìm cái mắt xích máy xúc, thấy bao cao su vất đầy gầm phản. Thôi thì con trai mà, cho chúng nó xả. Nhưng điều bất ngờ nhất là thằng kỹ sư trắc địa, trẻ đẹp trai, lương ngàn đô cũng tuần 2 cữ hì hục với bà ấy. Mà sau này còn biết mỗi cữ nó phải 2 shot mới về lán ngủ. Các anh sẽ có câu hỏi, bà ấy thế nào mà thằng kỹ sư tri thức kia đéo đơn thuần chỉ để xả, 2 shots cơ mà, đm đấy là thưởng thức đấy chứ. Vâng, gọi là bà thôi nhưng thật ra gọi là chị thì chuẩn hơn vì bà ấy mới có 37 tuổi, dân lao động nên vẫn săn gọn, mặt ko xinh không xấu, lại trắng hồng hào. Nếu so với đám máy bay mà tụi thiên địa vẫn tung hô là thánh nữ thì vượt xa, kiểu thế nào nhỉ, các ông có nhớ con thần dâm Hoài Ngựa 1 thời không, bà này là phiên bản già hơn và quê hơn 1 tý. Tất nhiên các ông sẽ lại có câu hỏi nữa, tôi có chén bà ấy không. Ah, cái này thì không nhé, vì thẩm mỹ tôi cao vãi linh hồn ra, dù lượng Testosterone của tôi cao không kém. Tôi cũng rất thèm gái, nhưng chim tôi có tự trọng và có nguyên tắc, nên nhiều khi thèm quá, trời tối rồi mà tôi vẫn băng đèo lội suối về Đà Lạt tìm chơi gái. Mà tôi cũng nói luôn, khoản gái gú của Đà Lạt như cái con cc, nào là massage Hoàng Châu, Hương Sứ.... toàn là hàng dạt, xấu hình thể còn hay vòi vĩnh. Cave thì toàn cá sấu đội lốt sinh viên, hẹn vào mấy nhà nghỉ khu ngã 5 đại học bẩn như chó. Vâng, tôi đi hết từng đó nơi mà toàn dúi cho 200k tống tiễn chúng nó về, chưa được xả phát nào. May quá, 1 lần đối tác tiếp tôi ở nhà hàng Phú Vang, cả nhà hàng có 2 con ngon nhất, tôi nhớ mỗi con tên là Hà quê Đà Nẵng.Chúng nó vòi vĩnh nũng nụi đủ cả, máu dồn về chim rồi, tôi ra giá 3 củ/1 đêm. CHúng nó nguýt dài mới vl các ông ạ, cắn răng trả 5 củ, tụi nó còn bảo người yêu em ko cho đi qua đêm đâu. Vl thật, đm, 5 củ ở Hà Nội tao có hotgirl tập gym rồi, chứ đéo phải mấy con phục vụ nhà hàng bụng bia được mỗi mặt xinh như chúng mày. Ăn ở đó xong thì rủ chúng nó đi hát Karaoke ở Thủy Mộc gần bên. Lại uống thêm bia, nội tiết tố nam làm tôi mất hết lý trí. Thấy con Hà vào nhà vệ sinh, chắc vào tô lại son vì bị tôi cưỡng hôn lúc nhảy cùng nhau, tôi vào theo ngay cùng. Nó chưa kịp la tôi rút ra 2 triệu và 1 cái bao cao su bảo nó, em chỉ cần tụt quần xuống và cho anh 2 phút. Nó ngần ngừ chút rồi cầm tiền, mẹ, tôi mất chưa đến 1phuts đã xong các ông ạ. Sau lần đó nó thấy tôi chơi đẹp nên đồng ý giá 5 triệu/đêm, nhưng ngay sau đêm đầu tiên tôi đã ngấy mẹ nó cái ngấn mỡ của em nó, gái nhà hàng mà, rượu bia suốt ngày, không bao giờ gặp lại nữa. Đấy lan man như thế để các ông biết tôi khổ sở và tốn kém vì gái gú Đà Lạt lởm khởm như thế nào. Đó cũng là lý do tại sao tôi quyết định phải có 1 hàng thửa ở cái đất này. Và là nhân duyên của tôi và cháu, ah em ấy. Không biết 16 tuổi gọi 31 tuổi là chú hay anh thì hợp nữa, riêng tôi bắt em nó gọi chú xưng cháu cho thêm phần bệnh hoạn.
 
-## [Lời đề nghị kì lạ](https://vozforums.com/showpost.php?p=141528001&postcount=86)
+### [Lời đề nghị kì lạ](https://vozforums.com/showpost.php?p=141528001&postcount=86)
 Rồi mùa mưa đến, công việc lập tức bị ngưng trệ, các phương tiện bánh lốp không thể hoạt động. Các phương tiện bánh xích cũng chỉ có thể làm việc buổi sáng, đến chiều cơn mưa kéo tới, nước đổ như trút ko thể làm nổi. Công ty chúng tôi cũng như các công ty khác, rút bớt nhân lực ra khỏi lòng hồ. Khu công trường do tôi quản lý, chỉ còn 1 đội máy xúc 5 người 3 máy cứ tạnh mưa là làm, kể cả đêm. Riêng khối kỹ sư thì tập trung cho công tác nội nghiệp hầu như ở lại. Công việc nhàn hẳn, việc ra vào cũng phải đợi ca nô của ban quản lý, thành ra lại rượu, cứ mưa là rượu. Và trong 1 cuộc rượu như thế, bà ấy đã kể về cuộc đời bà và đứa con gái như vậy. Lúc đó tôi cũng ngà ngà say, xâu chuỗi mọi thứ lại, và quan trọng nhất là được xem ảnh của con gái bà ấy, tự nhiên tôi có 1 ý tưởng như anh chủ thớt này. Ý tưởng mua 1 đứa con gái về phục dịch cho mình như 1 nô lệ thật là bệnh hoạn, nhưng cái gì cũng có hai mặt, việc này mà thành vừa là giúp người, vừa là giúp mình. Tôi tự hứa sẽ đối xử thật tốt với cháu nó, và sẽ lo cho cháu nó có tương lai tươi sáng hơn, thay vì làm vợ 1 thằng người Mông suốt ngày cắm mặt trong bếp, và nó cứ say rượu là mình ăn đòn. Tự bào chữa cho ý tưởng bệnh hoạn bằng những lý tưởng cao đẹp tôi cao giọng bảo:
 - Này, chị chốc dọn dẹp xong qua văn phòng tôi bảo cái này.
 - Vâng, giờ tôi đi dọn luôn, lúc nào qua tôi gọi bộ đàm trước, sợ cậu ngủ sớm.
@@ -189,7 +192,7 @@ Thế là tôi bay ra Bắc, lấy xe ô tô cùng 2 thằng công nhân cứng 
 Ah, mãi mới tìm được cái ảnh có bà mẹ tạp vụ, áo đỏ nhé :
 ![Photo-0073.jpg](imgs/Photo-0073.jpg)
 
-### [Ngoại truyện - Mùi vị](https://vozforums.com/showpost.php?p=141545337&postcount=155)
+#### [Ngoại truyện - Mùi vị](https://vozforums.com/showpost.php?p=141545337&postcount=155)
 
 > Originally Posted by dangkhoa27187  View Post
 
@@ -200,7 +203,7 @@ Ah, mãi mới tìm được cái ảnh có bà mẹ tạp vụ, áo đỏ nhé 
 
 Anh nói có phần đúng, nhưng cái bản em này ở là bản vùng cao gần biên giới, nhà nước hàng tháng vẫn cấp đủ gạo muối, nước mắm, dầu ăn, xà phòng, kem đánh răng. Nên răng miệng trắng trẻo sạch sẽ lắm. Còn nhà thằng cậu nó nghèo vãi lúa, nuôi được con gì là bị siết nợ đi luôn, chỉ còn vài con gà với ngan dành làm cỗ. Tôi ko thấy ám mùi gì cả.
 
-## [Chuyến đi](https://vozforums.com/showpost.php?p=141555861&postcount=187)
+### [Chuyến đi](https://vozforums.com/showpost.php?p=141555861&postcount=187)
 
 Tôi cũng thuộc dạng cứng, lăn lộn rừng rú công trường các kiểu, nhưng mà bảo đi một mình lên 1 vùng giáp ranh nổi tiếng về ma túy thế này cũng hơi ớn. Nếu chỉ đơn thuần là đi phượt thì không sao, nhưng đây lại là đi mua người. Nên mới phải mang theo 2 thằng công nhân cứng cựa là vậy. Gọi là cứng cựa vì các đồng chí này trước khi về công ty làm cũng đã có 1 lý lịch bất hảo, án tích còn lưu, nay có gia đình rồi muốn đi làm ổn định. Gọi là làm công nhân nhưng ko có đi làm công trường đâu xa xôi cả, chủ yếu ở Hà Nội trông nom bảo vệ bãi xe, chuyển máy thì theo hộ tống, ngày thường thì cho kéo vòi nước rửa dăm cái xe máy, vợ kết hợp bán hàng nước. Ăn ở sinh hoạt công ty lo, cuộc sống cũng phong lưu, tháng để ra hơn chục củ. Đặc biệt giáp tết thì thu nhập thường cao, do đi thu hồi công nợ cho công ty, đúng chuyên môn nên các anh giỏi lắm. Gặp thằng mềm thì dọa nạt, gặp thằng cứng thì lầy lội. Như vụ thằng trưởng phòng quận Hoàng Mai, hứa cho thuê mấy chỗ đất quy hoạch treo để làm bãi xe container, chuyển cho 200 triệu rồi mà bể kèo, lại không có dấu hiệu muốn hoàn tiền. Thế là đúng dịp bình bầu thi đua khen thưởng, thằng công nhân bên tôi chở con vợ, lúc này đang mang bầu, đến trước cổng Quận ủy, cứ khóc lóc tru tréo, réo tên tùm lum bắt đền tội làm nó có thai xong chạy làng. Công an phường đến nhìn nhau đéo dám làm gì mạnh tay, vì nó đang bầu vượt mặt, động vào chẳng may sẩy thai đéo phải đầu cũng phải tai. Đến tối thằng ml trưởng phòng mang 200 triệu đến lậy như tế sao. Thưởng nóng cho vợ chồng nó 5 triệu luôn. Đại loại 2 thằng đi cùng tôi nó đều có bản lĩnh và độ lầy lội cũng như kinh nghiệm giang hồ như vậy. Nhưng cũng xác định có hai thằng chúng nó đi theo chỉ để yên tâm hơn chút thôi, còn tôi là thằng làm việc lúc nào cũng phải có kế hoạch, và các phương án dự phòng, hạn chế tối đa nhất sự rủi ro. Lúc ăn sáng ở Xuân Mai tôi trình bày kế hoạch, hai ông tướng mới thở phào bảo,đm, mới đầu em lo vãi, tưởng cứ phi vào chồng tiền lấy người rồi đi, lỡ xảy ra bất trắc thì chết chắc, giờ kế hoạch như của anh thì yên tâm rồi.
 
@@ -212,7 +215,7 @@ Chúng tôi đi theo sự chỉ dẫn của thằng cậu em nó, cuối cùng c
 - Dạ, là thế này, chị X con ông bà Y là người quê ta, giờ đang làm cho công ty bọn em. Qua chị ấy em cũng biết xã ta còn nhiều khó khăn, nên hôm nay lên có chút quà nhỏ, gọi là động viên các đồng chí trong ủy ban, mong các đồng chí vượt qua khó khăn hoàn thành tốt nhiệm vụ.
 ĐỊnh biên dài dài ,à giờ đi tiếp đối tác chốc về biên nốt, các anh thông cảm.
 
-## [Ngời cậu]()
+### [Người cậu]()
 
 - Quý hóa quá, thay mặt chính quyền xã , chúng tớ chân thành cảm ơn quý công ty. Xã chúng tớ tuy là xã biên giới, chủ yếu là bà con người Thái, Mông sinh sống..blo...bla...
 - Vâng thế anh biết chị X không ạ.
@@ -232,7 +235,7 @@ Tôi phải che mặt thằng Táo, có khi giờ này nó lên trưởng công 
 
 ![P1040002.jpg](imgs/P1040002.jpg)
 
-## [Mâm cỗ](https://vozforums.com/showpost.php?p=141586625&postcount=241)
+### [Mâm cỗ](https://vozforums.com/showpost.php?p=141586625&postcount=241)
 Từ bờ suối, phải leo 1 cái dốc dài độ 100m nữa thì tới nhà. Vào tới sân rồi thấy vắng lặng như tờ, thế đéo nào, sao bảo làm cỗ bàn mấy mâm cho họ mạc, rồi thì thầy cúng linh đình lắm cơ mà. Tự nhiên tôi thấy hơi chột dạ, đưa mắt nhìn thằng đệ, nó cũng nhìn tôi. Thấy phía chái bếp lơ thơ khói, thằng Táo cất tiếng gọi bằng tiếng Thái :
 - Ai mặc nọng lái lai. ( đm, tôi minh họa thôi, tôi biết tiếng Thái đéo đâu, các quý anh đừng bẻ tôi). Ở trong bếp, một giọng phụ nữ hơi già dặn cất lên trả lời như chim hót:
 - Xà cà lày, thọc lẹc, thọc lẹc. Su ra chai, na ti pông, kiệt sụ ra nôn.
@@ -257,7 +260,7 @@ Tôi chưa kịp trả lời thì 1 lão nhìn phương phi mặc kiểu bọn K
 Tôi đưa 5 triệu cho thằng cậu, thằng cậu cầm ngần ngừ 1 lúc rồi đưa cho ông béo, hóa ra buổi cúng này cũng là vay trước tiền ông béo. Chúng tôi cùng đi lên nhà, thì mấy mâm cỗ đã bày ra rồi. Tôi đéo hiểu 5 triệu tiêu thế nào mà được có 5 mâm cỗ như thế này :
 ![P1040008.jpg](imgs/P1040008.jpg)
 
-## [Thầy cúng - Lần trò chuyện đầu tiên](https://vozforums.com/showpost.php?p=141612301&postcount=295)
+### [Thầy cúng - Lần trò chuyện đầu tiên](https://vozforums.com/showpost.php?p=141612301&postcount=295)
 
 Nhìn cái mâm cỗ chán chết me, thịt gà còn luộc hơi sống nữa. Nhưng tôi không đến đây để xực, nên chẳng bận tâm lắm. Vừa vào đến nhà lập tức tôi đảo mắt quét pha một vòng, tò mò muốn thấy cháu nó lắm rồi. Nhưng không thấy đâu cả, thằng Táo lúc này cũng đã về, nó thấy tôi ngó nghển khắp nhà, biết tôi sốt ruột tìm con bé, nó vội cắt nghĩa, giờ này con bé chắc đang dưới bếp để mợ nó dạy mấy câu khấn rồi. Ah, vậy là chốc nó sẽ lên trên này làm lễ, tôi yên tâm tìm chỗ ngồi. Lúc này mọi người đã vào cả nhà, và chia hàng quỳ xuống trước bàn thờ, một mình hàng đầu là ông thầy mo, phía sau là chủ nhà với 1 ông phụ tá cho thầy mo. Tiếp theo là quan khách, tôi cũng không hiểu vị trí sắp xếp thế nào, kéo thằng đệ xuống hàng cuối cho lành. Ông thầy mo bắt đầu ngâm nga, cùng lúc ông phụ tá rút ra 1 cái nhạc khí, trông như cái sáo nhưng tiếng lại đục như tiếng khèn, thổi phụ họa. Lão thầy mo khấn đều đều nghe như 1 thằng rapper Thái Lan ngáo đá, tức là bị quấn 1 đoạn nhạc, lặp đi lặp lại. Tôi sẽ ngủ gật ngay lập tức với cái giọng khấn của lão, may thay lão phụ tá lại thổi 1 điệu sáo rất đéo liên quan, tiếng sáo như mô phỏng 1 con dở người đang bị viêm họng, lúc thì rên rỉ lúc thì rú lên khùng khục, lâu lâu cái sáo lại đánh bass bụp 1 cái, là do nước bọt của lão chảy vào. Tôi cũng đến ạ với cái văn hóa phi vật thể này. Nhưng việc khổ sở nhất là tôi luôn phải trừng mắt, cấu véo thằng đệ súc vật bên cạnh, nếu không nó sẽ cười rú lên như thằng động kinh và đéo hiểu chúng tôi sẽ ra sao nữa. Ngồi chịu trận tầm nửa tiếng, thì thấy thằng cậu đứng dậy đi vào phòng bên trái nhà, dắt tay 1 cô gái ra. A, người đẹp của tôi đây rồi, tôi hau háu nhìn vào, dưới ánh đèn dây tóc 40W lờ mờ, thân hình dần hiện rõ ra. Ồ, cao phết, Ồ, dáng thon phết, tôi liếm mép mở hết pha nhìn lên khuôn mặt, Ơ, cái đm gì thế này, thằng súc vật nào phủ lên đầu cháu nó cái khăn đỏ, có phải đám cưới Tàu đéo đâu. Hậm hực tôi đành cụp pha lại. Cháu nó được dẫn tới, quỳ bên ông thầy mo, ông thày mo lại phát tiếp đoạn rap Thái lúc nãy thêm 5p nữa, sau đó đốt 1 bó hương rõ to, vừa múa vừa rap quanh đầu cháu nó rồi tắt đài, chuyển sang múa hương quanh đầu mọi người. Đến đầu tôi, tôi lầm bầm : đm, rơi tàn vào đầu bố thì, đcmm, bố cũng phải chịu. Bỗng cháu nó cất tiếng khấn, đấy phải thế chứ, cũng đoạn rap đó qua giọng oanh vàng thánh thót khác ngay. Nhưng mà cái giọng oanh vàng đó trong trẻo mà sao buồn thảm đến cùng cực, như không phải cất lên từ miệng 1 cô gái 16 trăng tròn, mà như từ the hell vọng về. Cộng thêm thằng ml thầy mo cứ hơ hơ nắm hương trên đầu, một không khí liêu trai đặc quánh, làm thằng em tôi nằm im thin thít trong quần, không ngẩng lên hóng hớt như lúc nãy nữa. Một lúc thì màn tra tấn cũng kết thúc, cháu nó đi vào phòng, còn ông thày mo đến ngồi trước cái mâm sát bàn thờ, rót rượu gắp thịt ăn 1 mình, vừa ăn uống vừa lầm bầm cái gì đó như 1 thằng tự kỷ. Thằng Táo quay ra bảo tôi, ông ấy đang ăn hộ ma đấy, anh em mình cũng ra mâm ăn được rồi. Mâm của tôi có thằng đệ, thằng Táo, thằng cậu, thằng chủ nợ và 1 ông bô lão nữa. Lúc ăn cũng hỏi qua loa về tình hình chị X, tôi làm bộ thương cảm thành thực nhất mà trả lời. Ăn ít, chuyện ít, chủ yếu là các màn mời nhau rượu. Mọi người lần lượt qua mời tôi, lập tức tôi mời lại để đáp lễ, tính ra cũng tới 30 ly, rượu tuy không nặng, nhưng cái ly làm từ 1 đốt nứa tươi khá là to nên tôi cũng chuếnh choáng. Lúc này tôi phải đánh bài rút. Tôi quay ra bảo thằng cậu cháu nó :
 - Mải vui chút nữa thì quên, ở chỗ em có cái tục cứ xuất hành đi đâu xa hay có việc quan trọng là chủ xe phải cúng xe, em xin phép sang bên kia làm cái lễ nhỏ cúng mai đi cho suôn sẻ, kẻo chốc mải vui say quá quên mất là chết dở.
@@ -275,11 +278,11 @@ Quệt mũi 1 cái, tôi lấy lại sự trịnh trọng :
 - Chú xin, bảo chú gửi lời cám ơn, may quá ngoài kia chú có mỗi hoa quả.
 Lúc này lại đến lượt nó nhìn tôi chằm chằm, 1 lúc nó mỉm cười 1 cách khó hiểu rồi quay đi về. Tôi đoán, chắc nó cười sung sướng, vì tôi ít nhất vẫn trẻ trung ,ngon con và lịch thiệp hơn thằng ml vừa mua dâm mẹ nó vừa ấu dâm nó ngày xưa. Tôi cũng sướng vì món đầu tư này hời mọi nhẽ rồi. Tôi đẩy mảng qua suối, vừa đến gần cái xe thì thằng đệ từ băng ghế sau nhảy xuống, mặt mừng như mẹ đi chợ về. Tôi hỏi nó sao mày lại ra băng ghế sau, nó bảo, đéo hiểu sao em ngồi ghế trước cứ có cảm giác có thằng nào ở ghế sau ấy, nên em xuống ghế sau cho đỡ sợ. Tôi chửi, đm, mày thông minh lắm thằng ngu này, lỡ có biến, tụi nó ập vào, mày chạy kịp lên ghế trên lái xe đi không. Nó cười hề hề rồi cầm lấy gói xôi gà, chiêu 1 ngụm rượu rồi ăn ngấu nghiến.
 
-### [Ngoại truyện - Vì sao bài viết lâu lên](https://vozforums.com/showpost.php?p=141629317&postcount=365)
+#### [Ngoại truyện - Vì sao bài viết lâu lên](https://vozforums.com/showpost.php?p=141629317&postcount=365)
 
 Tiếc 1 cái, ảnh ọt tôi để linh tinh quá, giờ chẳng biết ở cái ổ cứng, ở cái usb hay cái thẻ nhớ nào. Giờ mất thời gian lục tìm lại, viết thì nhanh thôi, mà tìm ảnh mới lâu. Các anh thông cảm. Nếu các anh cho phép, tôi cứ viết trước rồi trả ảnh sau.
 
-## [Bình Minh](https://vozforums.com/showpost.php?p=141637089&postcount=389)
+### [Bình Minh](https://vozforums.com/showpost.php?p=141637089&postcount=389)
 Tôi cũng đốt hương, rồi cắm trên mô đất gần xe, chả khấn vái đéo gì. Lên ghế lái ngồi, quay xuống bảo thằng đệ :
 - Mày tranh thủ ngủ đi, tao trông xe cho, chắc độ 1 tiếng, thằng kia nó quần rượu cho đội kia tơi tả, tao vào thu thập nốt chiến trường sẽ gọi mày dậy. Đêm nay yên ả rồi.
 - Không, em đang làm nốt nhiệm vụ, anh tranh thủ mà ngủ đi, mai lúc anh lái xe thì em ngủ.
@@ -309,7 +312,7 @@ Tôi tỉnh dậy khi tiếng bộ đàm kêu, anh ơi, chuẩn bị đi, em đ�
 Tôi trở dậy, ra cuối xe xả bình nước 20 lít ra để đánh răng và rửa mặt. Xong xuôi đi ra bờ suối chờ. Cảnh bình minh thật đẹp và yên bình.
 ![P1040025.jpg](imgs/P1040025.jpg)
 
-### [Ngoại truyện - Vì sao tôi viết truyện này]()
+#### [Ngoại truyện - Vì sao tôi viết truyện này]()
 
 > Originally Posted by hieuspb  View Post
 
@@ -325,7 +328,7 @@ như thế này, bố anh cũng đéo nhận ra được luôn :
 
 mà anh làm tôi mất hứng chết mẹ.
 
-## [Chợ huyện](https://vozforums.com/showpost.php?p=141651733&postcount=451)
+### [Chợ huyện](https://vozforums.com/showpost.php?p=141651733&postcount=451)
 Tôi đứng thả hồn ngắm cảnh sắc thiên nhiên tươi đẹp 1 lúc, thì thu hồn lại, đăm chiêu tính toán các bước tiếp theo. Mục tiêu của tôi là phải làm sao đoạn hậu cho thật tốt, sau khi đi rồi làm sao tránh cho tôi cũng như mẹ con con bé khỏi phiền phức, không dính dáng gì nữa tới cái mảnh đất đầy ma túy và hủ tục này. Một lúc thì bờ bên kia lục tục kéo mảng sang. Thấy rõ thằng béo chủ nợ đi kè kè cạnh bé Linh. Thằng đệ tôi thì đi xiêu vẹo, xuống dốc phải bám vào vai thằng Táo, thằng này thì tươi như hoa, chắc đúng như kế hoạch, nó đã thắng bạc. Đoàn sang đến bên này, tôi đang vắt óc suy nghĩ nên mặt khó đăm đăm, nhìn thấy bé Linh bất giác tôi nở 1 nụ cười, vì may quá, ánh trăng và men rượu hôm qua không lừa dối tôi, Linh vẫn dễ thương như vậy. Chỉ có điều vẻ ma mị hôm qua đã biến đi đâu hết, thay vào đó là một nét buồn sâu thẳm, như được gom góp chất chứa từ rất lâu rồi. Thấy tôi nở nụ cười, thằng cậu như thở phào, tiến lại hỏi thăm :
 - Cậu hôm qua ngủ ngoài này ah, sao không vào nhà ngủ?
 - Dạ, hôm qua lúc em cúng xong quay vào thì thấy mọi người ngủ rồi, có bàn đánh bạc thì em lại không khoái món này nên ra xe ngủ lấy sức.
@@ -372,11 +375,11 @@ Xong xuôi lên xe đi tiếp. Thấy con bé đang sợ hãi rúm ró, chắc n
 - Nhìn cái gì, việc lúc nãy không được nói cho ai, biết chưa?
 Nó gật gật, mà mắt rưng rưng.
 
-### [Ngoại truyện - Vì sao tôi viết truyện này](https://vozforums.com/showpost.php?p=141653193&postcount=458)
+#### [Ngoại truyện - Vì sao tôi viết truyện này](https://vozforums.com/showpost.php?p=141653193&postcount=458)
 
 Cũng phải cám ơn sự ủng hộ của các anh, nhờ đó tôi mới có hứng viết lại. Tôi thường coi lại ảnh cũ, rồi bồi hồi nhớ lại những điều đã qua, đã trải nghiệm. Có những sự việc, đến giờ vẫn gây cảm xúc mạnh, thì tôi viết ra, chỉ có viết ra thì mới được sống lại từng cảm giác, cảm xúc lúc ấy một lần nữa.
 
-## [Đường về](https://vozforums.com/showpost.php?p=141666545&postcount=503)
+### [Đường về](https://vozforums.com/showpost.php?p=141666545&postcount=503)
 
 Trên đường về, thằng đệ cứ thắc mắc mãi, nó bảo :
 - Sao thằng Táo nó biết mà bảo anh được nhỉ, cái chai rượu thì em tưởng không sao, nên mua ngay lúc ngồi nhậu, nó ở đấy nó biết là một nhẽ. Còn cái sái thuốc phiện đen kia, là lúc em ra ngoài đi vệ sinh, có 1 thằng già đi theo, nó dúi vào tay bảo cái này chữa đau dạ dày hay lắm, em thấy rẻ nên mua 1 ít. Cũng cẩn thận ngó nghiêng, thằng Táo lúc đó đang cầm cái trong nhà ko thể đi rình được.
@@ -387,7 +390,7 @@ Trên đường về, thằng đệ cứ thắc mắc mãi, nó bảo :
 - Ghê bình thường, tại mày ngu thôi.
 Chiến thuật chinh phục con tim và khối óc của cả đối thủ và đối tác của tôi đã phát huy tác dụng. Ai mà biết được sẽ ra sao nếu không hào phóng với thằng Táo một cách tự nhiên nhất để nó quý mình, đơn giản chỉ 1 cuộc điện thoại lên công an huyện, là chúng tôi xộ khám, còn nó có thêm 1 cái bằng khen treo ở phòng và đôi xị uống rượu. Nhưng nó ko làm thế vì vướng cái "tình" với tôi, và quan trọng hơn cây ba số ngoại mà lần sau tôi hứa sẽ mang lên cho nó đáng giá hơn. Lúc nãy có ông nào hỏi, sẽ thế nào nếu ông trưởng công an xã quyết lưu hồ sơ của tôi, thứ nhất như tôi nói, việc lấy hồ sơ tôi phải bố trí đúng thời điểm để ông ấy về nhà ngủ sau 1 đêm trực ban, nên tôi phải đi loanh quanh đợi giao ban xong mới đến là như vậy, và nói với thằng Táo là ông ấy đang ngủ rồi, nó sẽ ko dám gọi làm phiền để hỏi ý kiến vụ hồ sơ, cộng thêm cây 3 số đang đợi, nó sẽ ko màng việc gì khác. Thứ 2, nếu chẳng may ông ấy giao ban xong mà ko về, thì tôi sẽ lại đích thân lên quà cáp trước, xin hồ sơ sau. Ở xã vùng cao đó không có máy phô tô, tôi lại cố tình mang hồ sơ gốc. Ai nỡ lòng nào làm khó tôi, khi tôi đang làm việc thiện, chẳng có gì khuất tất về ma túy, và quan trọng lại đang muốn trả lễ cái "tình" mà tôi đã hào phóng cho họ.
 
-## ["Em ơi là em"](https://vozforums.com/showpost.php?p=141685789&postcount=560)
+### ["Em ơi là em"](https://vozforums.com/showpost.php?p=141685789&postcount=560)
 
 Chúng tôi vừa đi vừa nói chuyện, nhưng tôi tuyệt không nói gì với bé Linh cả, hai thằng đệ thấy tôi không đả động, cũng không dám bắt chuyện với nó. Nó cũng không dám nhìn về phía tôi, cứ nhìn qua cửa sổ rồi chắc mệt quá ngủ gật mất. Tôi dừng xe, nhẹ nhàng ngả ghế , thắt dây bảo hiểm, giảm âm lượng nhạc, lấy tấm che nắng và quay cửa gió điều hòa đi chỗ khác cho nó. Đang làm, thấy nhịp thở nó khác, mắt hơi hấp hé, biết nó vẫn thức. Tôi lại tập trung vào lái, hai thằng đệ cũng ngả vào nhau ngủ từ lúc nào. Lâu lâu tôi nhìn sang nó, dù là nhắm mắt vẫn thấy một nét buồn đâu đó trên khuôn mặt. Nó tự nhiên làm tôi nhớ tới 1 người, cũng là một người con gái Thái. Xe đi hết dốc Cun, chớm gặp cây đa ngã ba Hòa Bình tôi mới thở phào nhẹ nhõm, về tới đây thì yên tâm rồi. Lúc này đã hơn 12h trưa, hai thằng đệ và bé Linh cũng đã thức dậy. Chúng nó thấy về đến miền đất an toàn rồi, lập tức mở loa :
 - Anh ây,thịt trâu cá suối Hòa Bình ăn mừng cái nhỉ.
@@ -411,14 +414,14 @@ Tôi nhìn theo, em không đi xuống bếp, mà đi về phía nhà vệ sinh,
 Bé Linh thì cứ ôm miệng cười khúc khích. Tôi đéo hiểu em nói cái chuyện gì với bé Linh, mà giờ nó tỏ ra bạo dạn hẳn, lâu lâu còn nhìn tôi cười cười. Tôi giả đò nạt nó :
 - Cười cái gì, liệu mà giữ mồm. Nó đéo sợ mà còn hớn hở dạ vâng một cách ngon lành. Thôi bỏ mẹ, hỏng hết kế hoạch rồi. Em ơi là em.
 
-### [Vi sao toi viet truyen nay](https://vozforums.com/showpost.php?p=141687521&postcount=568)
+#### [Ngoại truyện - Vợ lẽ](https://vozforums.com/showpost.php?p=141687521&postcount=568)
 > Originally Posted by karry0248  View Post
 
 > bác cho em hỏi ý không phải số ''vợ lẽ'' của bác chắc bằng số lần công tác
 
 Em ấy không phải vợ lẽ của mình, là của người khác. Con chim của núi rừng trong lồng son giát vàng, thấy 1 thằng thành phố lại tự do lang bạt rừng núi như mình, nên nảy sinh nhiều đồng cảm tâm sự. Chỉ là tri kỷ thôi.
 
-### [Vi sao toi viet truyen nay](https://vozforums.com/showpost.php?p=141687725&postcount=569)
+#### [Ngoại truyện - Ăn chơi ở Tây Bắc](https://vozforums.com/showpost.php?p=141687725&postcount=569)
 
 > Originally Posted by DrakFlame  View Post
 
@@ -427,7 +430,7 @@ Em ấy không phải vợ lẽ của mình, là của người khác. Con chim 
 
 Chỗ ăn ngon ko thiếu, chỗ ăn mà vui mới hiếm. Mà chỗ đó ko cho quay phim đâu bác.
 
-## [Ở khách sạn](https://vozforums.com/showpost.php?p=141698313&postcount=609)
+### [Ở khách sạn](https://vozforums.com/showpost.php?p=141698313&postcount=609)
 
 Về tới Hà Nội, tôi đưa bọn nó về bãi xe của công ty dưới chân cầu Thanh Trì, đến nơi rồi mà hai thằng vẫn tựa nhau ngủ như chó chết, gọi mãi mới dậy. Hai thằng càu nhàu :
 - Sao lại dừng ở đây, anh đưa tụi em về cổng công ty chứ, đi bộ xa vl.
@@ -462,7 +465,7 @@ Tôi rảo bước đi bộ về phía văn phòng công ty, trong đầu mông 
 Bonus cho bác cái ảnh cháu nó làm tóc và lên đồ, vẫn hơi quê nhưng cũng ra gì và này nọ phết :
 ![1cd.jpg](imgs/1cd.jpg)
 
-## [Bạn cũ](https://vozforums.com/showpost.php?p=141716941&postcount=701)
+### [Bạn cũ](https://vozforums.com/showpost.php?p=141716941&postcount=701)
 
 Cứ suy nghĩ mông lung, không đâu vào đâu cả, đầu óc căng như dây đàn, có lẽ tại mệt với thiếu ngủ. Tôi thả cho đầu óc nghỉ ngơi, ngắm phố phường nhộn nhịp. Hà Nội của tôi cứ giờ chiều muộn này, là từ khu ô chuột cũ phố cổ tới khu ổ chuột mới Trung Hòa Nhân Chính lại vang lên những âm thanh thân thương. Tiếng còi xe huyên náo, tiếng đm, vl của các em thiếu niên ngồi trà đá, tiếng phần phật chém gió của các anh các bác văn phòng bên ly bia vỉa hè. Tôi rẽ qua chợ cóc , thấy có bán măng củ, tôi mua một ít gọi là có quà Tây Bắc cho anh em nhân viên văn phòng, hơi lẻ, kệ mẹ, mai chúng nó tới tự chia nhau. Văn phòng của công ty tôi nằm ở trên 1 chung cư, sau khi có lệnh cấm thì chỉ đơn giản là gỡ bảng hiệu và chuyển đăng ký về địa chỉ khác, còn mọi hoạt động vẫn bình thường, ban quản lý chẳng ai muốn chúng tôi chuyển đi cả, do sự hào phóng trong các khoản đóng góp, mọi công văn cũng vẫn được phím chuyển về đó. Văn phòng là 1 căn hộ khá rộng, nhân viên làm việc, nghỉ trưa ở phòng khách, 1 phòng ngủ là phòng giám đốc tức chú tôi, bố tôi là chủ tịch HĐQT cũng có 1 phòng, nhưng không ở mà biến nó thành phòng hút thuốc và để rượu. Phòng to nhất, tiện nghi nhất, phòng Master là của tôi. Bấm thang máy lên tới cửa, vẫn thấy sáng đèn,5h35 rồi, chắc ông chú ngồi đợi đến giờ đi nhậu với đối tác luôn. Trong đầu tôi vẽ ngay ra lý do cho chuyến đi vừa rồi nếu ông có hỏi. Đẩy cửa bước vào, nhân viên đã về hết, tôi đặt mấy củ măng ra bếp rồi đi vào phòng ông chú.
 
@@ -482,13 +485,13 @@ Chết mẹ rồi, sao từ trưa tới giờ chuyện gì cũng vào thế bị
 - Dạ, chú với T cứ ngồi trước đi, cháu vừa đi về, tắm rửa cái đã rồi qua luôn.
 - Uh, xong qua Legend Beer Vũ Ngọc Phan nhớ.
 
-### [Ngoại truyện - T và Ninh Thuận](https://vozforums.com/showthread.php?p=141770041#post141770041)
+#### [Ngoại truyện - T và Ninh Thuận](https://vozforums.com/showthread.php?p=141770041#post141770041)
 
 Tôi mới đi Ninh Thuận khảo sát với thằng ml T tuần trước. Ngồi với cả bác Thựu phó sở NN Ninh Thuận đây. Các hồ chứa lớn Trà Co, Cho Mo, Sông Sắt vẫn đạt 65% tổng dung tích nhé. Các nơi hạn là thiểu số cục bộ và cũng chẳng thê thảm như báo chí tivi nói đâu. Chả là mẹ gì so với hạn năm 2015 cả, năm nay còn được coi là ít hạn nhất. Nhưng tại sao báo chí phải hộc lên, vì là do thằng ml T mớm đấy. Mục đích của nó 2 năm nữa tôi sẽ nói.
 
 ![abc_1.jpg](imgs/abc_1.jpg)
 
-## [Làm tóc](https://vozforums.com/showpost.php?p=141725029&postcount=732)
+### [Làm tóc](https://vozforums.com/showpost.php?p=141725029&postcount=732)
 
 Tắm rửa qua loa, tôi lấy thêm ít quần áo cho vào túi xách, rồi ba chân bốn cẳng đi về khách sạn. Bước nhanh như thằng trộm chó, nhưng đầu tôi nảy số còn nhanh hơn. Nhờ ơn em H kế hoạch đe nẹt nó, áp chế bắt nó phục tùng trong sự sợ hãi và cam chịu coi như đổ bể rồi. Phải chuyển tông ngay lập tức, phải đối xử tốt với nó, làm sao mà để nó phục tùng mình bằng sự biết ơn và cảm kích, nhưng lại tuyệt đối không để nó yêu mình. Bởi vì, đàn bà khi yêu rồi mà không được yêu lại sẽ chuyển thành hận, cực đoan quá sẽ có tư tưởng không ăn được đạp đổ hoặc trả thù. Nó chỉ cần đâm 1 cái đơn thôi, anh nào luật sư cho tôi hỏi cái tội mua bán, lạm dụng tình dục trẻ vị thành niên đi bao nhiêu lâu nhỉ? Làm nó cảm kích mình thì dễ, còn vừa đối xử tốt, quan tâm chăm sóc và vẫn chịch nó mà khiến nó không yêu mình thì thật nan giải. Nhưng hướng đi là đúng đắn, sẽ tùy cơ mà thực hiện vậy. Đến nơi, tôi vừa gọi cửa thì đã thấy nó mở, có vẻ đang ngóng tôi. Nó đã tắm rửa xong xuôi và mặc lại luôn bộ quần áo hồi sáng, tôi chép miệng tiếc rẻ, cứ nghĩ nó sẽ mặc bộ pijama mỏng manh mà tôi đã cẩn thận dấu cả cái dây thắt lưng đi.
 - Chú đi lâu thế, cháu ngóng chú mãi.
@@ -505,14 +508,14 @@ Tôi xuống lấy xe, đưa nó vào 1 thẩm mỹ viện tóc ở Nguyên Hồ
 Có vẻ nó muốn nói, chú ở đây với cháu, nhưng câu thần chú " chú nói phải nghe" khiến nó chỉ gật gật cái đầu.
 Tôi ra xe lái về quán bia Legend. Vừa đi vừa nghĩ về việc sắp tới sẽ hợp tác với thằng T ở Sài Gòn. Nó mới du học về và vào công ty bố nó làm 2 năm, nhưng trong giới đã đày rẫy những câu chuyện về nó, người thì bảo nó làm việc minh bạch khoa học, người thì bảo nó thủ đoạn vô biên, người bảo nó sòng phẳng hào phóng, người lại bảo nó cứt sắt, trái ý nó 1 đồng cũng không có, người đập cốc bia tung tóe thề đéo bao giờ làm việc với nó nữa, người thì chỉ muốn xin làm cùng. Ngay việc nó trẻ vậy đã được giao toàn quyền khu vực miền Nam một công ty khá lớn và nhiều mảng làm ăn phức tạp như công ty nhà nó, đủ hiểu nó không phải là 1 thằng đơn giản. Nhiều mảng đối lập cùng trong con người nó như vậy có cái gì đó giống giống mình, chỉ khác là ai cũng quý mình dù được việc hay không. Đéo hiểu sao nước Úc xinh đẹp thanh bình lại đào tạo ra những thằng cơ hội, thủ đoạn, gian xảo như nó và mình.
 
-### [Ngoại truyện - Bản chất không phải là mua dâm](https://vozforums.com/showpost.php?p=141730829&postcount=758)
+#### [Ngoại truyện - Bản chất không phải là mua dâm](https://vozforums.com/showpost.php?p=141730829&postcount=758)
 > Originally Posted by fqminh  View Post
 
 > Vấn đề là ông kia k mua dâm mà là bỏ một cục rước e này về với mẹ giờ có bắt thì em này cũng trên 16 mà ông kia đâu có trả tiền mỗi lần chịch đâu nên không sợ
 
 Các anh cứ đọc hết truyện, không có cái gì gọi là mua dâm, cưỡng ép cả. Đơn thuần chỉ là tình yêu đôi lứa và khao khát bản năng.
 
-## [Gái trường múa]()
+### [Gái trường múa]()
 
 Lúc tôi tới Legend Beer, biết mình đến hơi muộn tôi nói ngay:
 
@@ -586,7 +589,7 @@ Nó hớn hở lắm, từ khi gặp nó đến giờ chưa bao giờ tôi thấ
 
 > Tới đây thì truyện tạm hết, chưa có thông tin gì thêm
 >
-## [Ngoại truyện - Câu chuyện Đà Lạt]()
+## [Lan quyên - Câu chuyện Đà Lạt]()
 
 > Đây là một serie bài của bác Saul viết từ tháng 11 năm 2017, liên quan tới một
 cô gái ở Đà Lạt mà bác từng quen. Do nhầm lẫn, tôi đặt vào truyện này, nhưng sau
