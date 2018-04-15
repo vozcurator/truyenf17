@@ -29,6 +29,7 @@
   * [Vi sao toi viet truyen nay](#vi-sao-toi-viet-truyen-nay-1)
 - [Ở khách sạn](#%E1%BB%9F-khach-s%E1%BA%A1n)
 - [Bạn cũ](#b%E1%BA%A1n-cu)
+  * [Ngoại truyện - T và Ninh Thuận](#ngo%E1%BA%A1i-truy%E1%BB%87n---t-va-ninh-thu%E1%BA%ADn)
 - [Làm tóc](#lam-toc)
   * [Ngoại truyện - Bản chất không phải là mua dâm](#ngo%E1%BA%A1i-truy%E1%BB%87n---b%E1%BA%A3n-ch%E1%BA%A5t-khong-ph%E1%BA%A3i-la-mua-dam)
 - [Gái trường múa](#gai-tr%C6%B0%E1%BB%9Dng-mua)
@@ -57,8 +58,15 @@ Từ topic ất ơ gánh không ít gạch đá này của khoidang1234, bác [S
 bẻ laí bất ngờ, và kể cho chúng tôi nghe về câu chuyện tình giữa bác và một cô
 gái dân tộc Thái tên Linh
 
-Có người đặt tên cho truyện này là "Nô lê", riêng tôi, tôi nghĩ nó nên được đặt
+> Có người đặt tên cho truyện này là "Nô lệ", riêng tôi, tôi nghĩ nó nên được đặt
 là "Gái Thái", bởi như bác Saul đã nói, Linh đâu phải là nô lê của ai.
+
+Topic đang khá rôm rả thì bị mod ban mất, tôi may mắn theo sát các post của bác
+Saul, góp nhặt thêm vài posts của bác ở các topic sau để lượm lặt và thêm vào
+đây. Có một chi tiết về người bạn tên T của bác Saul khá thú vị, hắn có vẻ rất
+lõi đời và tính toán. Bác Saul có nói là sau 2 năm sẽ tiết lộ ý định thực sự của
+T khi bơm tiền cho báo đài viết về nạn hạn hán ở Ninh Thuận, tôi xin không có
+bình luận gì, và mong sớm tới ngày được bác tiết lộ cho
 
 Để hiểu thêm một chút về câu chuyện, chúng ta nên biết chút ít về bác Saul. Lượm
 lặt được từ những câu chuyện khác của bác (như [Bên trong nước Úc](https://github.com/vozcurator/truyenf17/tree/master/Saul-InsideAustralia))
@@ -464,6 +472,12 @@ Giúp đỡ đéo gì, đm, vào đấy mày lại làm thầu chính, tao thầ
 Chết mẹ rồi, sao từ trưa tới giờ chuyện gì cũng vào thế bị động thế này, một bên là công việc, lại quan trọng. Một bên lỡ hứa với bé Linh đưa nó đi chơi rồi, mà để nó một mình không thể yên tâm. Tất nhiên, công việc là quan trọng, chu toàn cho bé Linh thì không khó. Đầu tôi nảy số liên tục :
 - Dạ, chú với T cứ ngồi trước đi, cháu vừa đi về, tắm rửa cái đã rồi qua luôn.
 - Uh, xong qua Legend Beer Vũ Ngọc Phan nhớ.
+
+### [Ngoại truyện - T và Ninh Thuận](https://vozforums.com/showthread.php?p=141770041#post141770041)
+
+Tôi mới đi Ninh Thuận khảo sát với thằng ml T tuần trước. Ngồi với cả bác Thựu phó sở NN Ninh Thuận đây. Các hồ chứa lớn Trà Co, Cho Mo, Sông Sắt vẫn đạt 65% tổng dung tích nhé. Các nơi hạn là thiểu số cục bộ và cũng chẳng thê thảm như báo chí tivi nói đâu. Chả là mẹ gì so với hạn năm 2015 cả, năm nay còn được coi là ít hạn nhất. Nhưng tại sao báo chí phải hộc lên, vì là do thằng ml T mớm đấy. Mục đích của nó 2 năm nữa tôi sẽ nói.
+
+![abc_1.jpg](imgs/abc_1.jpg)
 
 ## [Làm tóc](https://vozforums.com/showpost.php?p=141725029&postcount=732)
 
