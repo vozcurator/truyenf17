@@ -13,16 +13,16 @@
 - [Nhà cô bé](#nha-co-be)
 - [Đời sống tình dục của chúng tôi](#d%E1%BB%9Di-s%E1%BB%91ng-tinh-d%E1%BB%A5c-c%E1%BB%A7a-chung-toi)
 - [Lời đề nghị kì lạ](#l%E1%BB%9Di-d%E1%BB%81-ngh%E1%BB%8B-ki-l%E1%BA%A1)
-  * [Ngoai truyen - Ham rang cua em no](#ngoai-truyen---ham-rang-cua-em-no)
+  * [Ngoại truyện - Mùi vị](#ngo%E1%BA%A1i-truy%E1%BB%87n---mui-v%E1%BB%8B)
 - [Chuyến đi](#chuy%E1%BA%BFn-di)
 - [Ngời cậu](#ng%E1%BB%9Di-c%E1%BA%ADu)
 - [Mâm cỗ](#mam-c%E1%BB%97)
 - [Thầy cúng - Lần trò chuyện đầu tiên](#th%E1%BA%A7y-cung---l%E1%BA%A7n-tro-chuy%E1%BB%87n-d%E1%BA%A7u-tien)
-  * [Ngoai truyen - Vi sao bai viet lau len](#ngoai-truyen---vi-sao-bai-viet-lau-len)
+  * [Ngoại truyện - Vì sao bài viết lâu lên](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-bai-vi%E1%BA%BFt-lau-len)
 - [Bình Minh](#binh-minh)
-  * [Ngoai truyen - Vi sao toi viet truyen nay](#ngoai-truyen---vi-sao-toi-viet-truyen-nay)
+  * [Ngoại truyện - Vì sao tôi viết truyện này](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-toi-vi%E1%BA%BFt-truy%E1%BB%87n-nay)
 - [Chợ huyện](#ch%E1%BB%A3-huy%E1%BB%87n)
-  * [Ngoai truyen - Vi sao toi viet truyen nay](#ngoai-truyen---vi-sao-toi-viet-truyen-nay-1)
+  * [Ngoại truyện - Vì sao tôi viết truyện này](#ngo%E1%BA%A1i-truy%E1%BB%87n---vi-sao-toi-vi%E1%BA%BFt-truy%E1%BB%87n-nay-1)
 - [Đường về](#d%C6%B0%E1%BB%9Dng-v%E1%BB%81)
 - ["Em ơi là em"](#em-%C6%A1i-la-em)
   * [Vi sao toi viet truyen nay](#vi-sao-toi-viet-truyen-nay)
@@ -32,9 +32,9 @@
 - [Làm tóc](#lam-toc)
   * [Ngoại truyện - Bản chất không phải là mua dâm](#ngo%E1%BA%A1i-truy%E1%BB%87n---b%E1%BA%A3n-ch%E1%BA%A5t-khong-ph%E1%BA%A3i-la-mua-dam)
 - [Gái trường múa](#gai-tr%C6%B0%E1%BB%9Dng-mua)
-  * [Bên nhau](#ben-nhau)
-  * [Drop _nhưng không drop_](#drop-_nh%C6%B0ng-khong-drop_)
-  * [Bonus - Trong khăn tắm](#bonus---trong-khan-t%E1%BA%AFm)
+- [Bên nhau](#ben-nhau)
+- [Drop _nhưng không drop_](#drop-_nh%C6%B0ng-khong-drop_)
+- [Bonus - Trong khăn tắm](#bonus---trong-khan-t%E1%BA%AFm)
 - [Tình địch](#tinh-d%E1%BB%8Bch)
 
 <!-- tocstop -->
@@ -135,7 +135,7 @@ Thế là tôi bay ra Bắc, lấy xe ô tô cùng 2 thằng công nhân cứng 
 Ah, mãi mới tìm được cái ảnh có bà mẹ tạp vụ, áo đỏ nhé :
 ![Photo-0073.jpg](imgs/Photo-0073.jpg)
 
-### [Ngoai truyen - Ham rang cua em no](https://vozforums.com/showpost.php?p=141545337&postcount=155)
+### [Ngoại truyện - Mùi vị](https://vozforums.com/showpost.php?p=141545337&postcount=155)
 
 > Originally Posted by dangkhoa27187  View Post
 
@@ -221,7 +221,7 @@ Quệt mũi 1 cái, tôi lấy lại sự trịnh trọng :
 - Chú xin, bảo chú gửi lời cám ơn, may quá ngoài kia chú có mỗi hoa quả.
 Lúc này lại đến lượt nó nhìn tôi chằm chằm, 1 lúc nó mỉm cười 1 cách khó hiểu rồi quay đi về. Tôi đoán, chắc nó cười sung sướng, vì tôi ít nhất vẫn trẻ trung ,ngon con và lịch thiệp hơn thằng ml vừa mua dâm mẹ nó vừa ấu dâm nó ngày xưa. Tôi cũng sướng vì món đầu tư này hời mọi nhẽ rồi. Tôi đẩy mảng qua suối, vừa đến gần cái xe thì thằng đệ từ băng ghế sau nhảy xuống, mặt mừng như mẹ đi chợ về. Tôi hỏi nó sao mày lại ra băng ghế sau, nó bảo, đéo hiểu sao em ngồi ghế trước cứ có cảm giác có thằng nào ở ghế sau ấy, nên em xuống ghế sau cho đỡ sợ. Tôi chửi, đm, mày thông minh lắm thằng ngu này, lỡ có biến, tụi nó ập vào, mày chạy kịp lên ghế trên lái xe đi không. Nó cười hề hề rồi cầm lấy gói xôi gà, chiêu 1 ngụm rượu rồi ăn ngấu nghiến.
 
-### [Ngoai truyen - Vi sao bai viet lau len](https://vozforums.com/showpost.php?p=141629317&postcount=365)
+### [Ngoại truyện - Vì sao bài viết lâu lên](https://vozforums.com/showpost.php?p=141629317&postcount=365)
 
 Tiếc 1 cái, ảnh ọt tôi để linh tinh quá, giờ chẳng biết ở cái ổ cứng, ở cái usb hay cái thẻ nhớ nào. Giờ mất thời gian lục tìm lại, viết thì nhanh thôi, mà tìm ảnh mới lâu. Các anh thông cảm. Nếu các anh cho phép, tôi cứ viết trước rồi trả ảnh sau.
 
@@ -255,7 +255,7 @@ Tôi tỉnh dậy khi tiếng bộ đàm kêu, anh ơi, chuẩn bị đi, em đ�
 Tôi trở dậy, ra cuối xe xả bình nước 20 lít ra để đánh răng và rửa mặt. Xong xuôi đi ra bờ suối chờ. Cảnh bình minh thật đẹp và yên bình.
 ![P1040025.jpg](imgs/P1040025.jpg)
 
-### [Ngoai truyen - Vi sao toi viet truyen nay]()
+### [Ngoại truyện - Vì sao tôi viết truyện này]()
 
 > Originally Posted by hieuspb  View Post
 
@@ -318,7 +318,7 @@ Xong xuôi lên xe đi tiếp. Thấy con bé đang sợ hãi rúm ró, chắc n
 - Nhìn cái gì, việc lúc nãy không được nói cho ai, biết chưa?
 Nó gật gật, mà mắt rưng rưng.
 
-### [Ngoai truyen - Vi sao toi viet truyen nay](https://vozforums.com/showpost.php?p=141653193&postcount=458)
+### [Ngoại truyện - Vì sao tôi viết truyện này](https://vozforums.com/showpost.php?p=141653193&postcount=458)
 
 Cũng phải cám ơn sự ủng hộ của các anh, nhờ đó tôi mới có hứng viết lại. Tôi thường coi lại ảnh cũ, rồi bồi hồi nhớ lại những điều đã qua, đã trải nghiệm. Có những sự việc, đến giờ vẫn gây cảm xúc mạnh, thì tôi viết ra, chỉ có viết ra thì mới được sống lại từng cảm giác, cảm xúc lúc ấy một lần nữa.
 
@@ -524,7 +524,7 @@ Nó hớn hở lắm, từ khi gặp nó đến giờ chưa bao giờ tôi thấ
 
 - Cháu bị từ lúc cắt tóc, may cô chủ quán cho cháu 1 cái.
 
-### [Bên nhau](https://vozforums.com/showpost.php?p=129623417&postcount=1)
+## [Bên nhau](https://vozforums.com/showpost.php?p=129623417&postcount=1)
 Chẳng hiểu sao thread kia bị delete rồi. Mắc công viết cho mấy anh em đọc thôi thì đăng nốt.
 Vừa tỉnh dậy, mở mắt ra đã thấy cảnh tượng như vậy, tôi không muốn đánh mất khoảnh khắc đấy nên lại nhắm hờ mắt vờ ngủ để ngắm em kỹ hơn. Nheo mắt lại, làm tôi nhìn mọi thứ rõ hơn. Em ngồi đó say sưa sấy quần chíp, ánh nắng ban mai chênh chếch phủ lên vai và ngực em, lấp lánh những giọt nước và từng ngọn lông măng. Tuy chiếc khăn tắm khá rộng nhưng phải ưu tiên che phần dưới nên phía trên chỉ đủ che nhũ hoa, còn nguyên nửa bầu trên trắng nõn lồ lộ dưới ánh nắng. Rõ ràng nó phải đủ to và chắc chắn thế nào mới có thể giữ đc chiếc khăn không tuột xuống. Tôi lướt ánh nhìn xuống dưới, chỉ thấy 1 cặp đùi thon thả và trắng không kém bầu ngực kia, thậm trí còn có thể thấy cả gân xanh nổi lên. Lúc đó tôi không thể ngờ, con bé có khuôn mặt dễ thương tối hôm qua ngồi với tôi, ẩn sau chiếc áo khoác quá size, chiếc quần jean bụi và đôi giày thể thao lại là 1 thân hình đẹp đến thế. Tôi bất giác nuốt nước bọt, hít sâu và thở hắt ra 1 cái. Cô bé quay ra nhìn, tôi vội vàng nhắm hẳn mắt lại, điều chỉnh nhịp thở vờ đang ngủ. Nhưng em đã cất tiếng :
 - Anh dậy rồi ah?
@@ -565,11 +565,11 @@ Mà tôi gặng hỏi nó cũng ko nói. Xong tôi lại sang cửa hàng bán �
 
 ![O3zu7e.jpg](imgs/O3zu7e.jpg)
 
-### [Drop _nhưng không drop_](https://vozforums.com/showpost.php?p=129627893&postcount=10)
+## [Drop _nhưng không drop_](https://vozforums.com/showpost.php?p=129627893&postcount=10)
 
 Các ông nói tôi chế tôi rất là buồn. Tôi năm nay cũng hơn 30 tuổi rồi, cũng vì cái nợ tình duyên mà đến giờ vẫn chưa vợ. Tôi chẳng đẹp trai cũng chẳng xấu trai, da hơn đen, mặt gân guốc nhưng nhẵn nhụi ko mụn, chỉ là cao to, đầu tóc, ăn mặc gọn gàng, có tài ăn nói hài hước 1 chút, hiểu tâm lý phụ nữa 1 chút, có tiền 1 chút, địa vị 1 chút. Quan trọng nữa là vì công việc cho tôi lăn lộn mọi nẻo đường, nên va chạm cuộc sống, xã hội, tình duyên hơn các ông 1 chút. Có nhiều sự kiện trong đời, giờ đang gãy chân buồn chán nằm nhà muốn chia sẻ đôi câu chuyện đời. Tôi viết chuyện có ảnh ọt, địa danh, đôi khi là nhân vật hẳn hoi rõ ràng,các ông tha hồ đối chứng, còn các ông chắc gặp nhiều thằng xạo lìn quá nên đọc truyện đời người khác cái tâm thế nghi kỵ nó làm mất hay đi. Tôi xin phép drop vậy.
 
-### [Bonus - Trong khăn tắm](https://vozforums.com/showpost.php?p=129635049&postcount=18)
+## [Bonus - Trong khăn tắm](https://vozforums.com/showpost.php?p=129635049&postcount=18)
 > Originally Posted by deptraibamsinh  View Post
 
 > khúc đầu thấy có vẻ tự nhiên, thật, khúc sau thì biết là chuyện chế r
