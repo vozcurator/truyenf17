@@ -1,8 +1,8 @@
-# Saul - Gai Thai
+# Gái Thái
 
 <!-- toc -->
 
-- [Gioi thieu](#gioi-thieu)
+- [Giới thiệu](#gi%E1%BB%9Bi-thi%E1%BB%87u)
   * [Chuyện tình cảm của tôi](#chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi)
     + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi)
     + [Ngoại Truyện - Chuyện tình cảm của tôi](#ngo%E1%BA%A1i-truy%E1%BB%87n---chuy%E1%BB%87n-tinh-c%E1%BA%A3m-c%E1%BB%A7a-toi-1)
@@ -39,7 +39,44 @@
 
 <!-- tocstop -->
 
-## Gioi thieu
+## Giới thiệu
+
+Đây là câu chuyện làm tôi nảy ra ý tưởng làm VozCurrator. Thực sự là một chuyện
+tình buồn, xen lân nhiều điều lãng mạn và thú vị.
+
+Câu chuyện này được viết bởi bác [Saul Badman](https://vozforums.com/member.php?u=1634589) ở vozforum, ban đầu được đăng
+ở 1 thread tên là **Tiền nhiều thì có nên mua nô lệ về chơi?** tạo bởi [khoidang1234]()
+
+> Như title, phò hay gấu thì cũng ko có cảm giác chiếm hữu thật sự, hồi trước mình cứ tưởng tình dục là quan trọng, sau này ngẫm nghĩ lại thì cảm giác đc chiếm hữu mới là sướng nhất. Cảm giác biến 1 đứa con gái thành nô lệ gọi dạ bảo vâng là thứ ham muốn đã nằm trong máu của mình.
+
+> Dự tính của mình là về các vùng nghèo kiếm con gái về làm osin rồi đem lên tp, mình sẽ gửi tiền cho ba mẹ họ hàng tháng. Bé kia thì chỉ việc trong nhà hộ mình, tối đến thì phục vụ các nhu cầu hơi bệnh hoạn của mình.
+
+> Mình chỉ dự tính thế thôi, không biết có khả khi không...
+
+Từ topic ất ơ gánh không ít gạch đá này của khoidang1234, bác [Saul Badman] đã
+bẻ laí bất ngờ, và kể cho chúng tôi nghe về câu chuyện tình giữa bác và một cô
+gái dân tộc Thái tên Linh
+
+Có người đặt tên cho truyện này là "Nô lê", riêng tôi, tôi nghĩ nó nên được đặt
+là "Gái Thái", bởi như bác Saul đã nói, Linh đâu phải là nô lê của ai.
+
+Để hiểu thêm một chút về câu chuyện, chúng ta nên biết chút ít về bác Saul. Lượm
+lặt được từ những câu chuyện khác của bác (như [Bên trong nước Úc](https://github.com/vozcurator/truyenf17/tree/master/Saul-InsideAustralia))
+thì bác xuất thân từ một gia đình có điều kiện về kinh tế, đã từng đi du học tại
+Úc, có từng trải qua một mốt tình với một cô du học sinh người Singapore tại đây
+(tiếc là bác không chia sẻ thêm). Gia đình bác có công ty xây dựng riêng, và bác
+hiện giờ đang là người quản lý nó.
+
+Bác Saul còn trải qua một câu chuyện tình buồn với người yêu vốn là bạn từ thời
+cấp 3. Tôi tạm đoán là bác yêu cô gái ấy lúc mới vào đại học, sau khi chia tay
+vì bị phản bội, bác quyết định sang đất Úc du học, như một cách quên đi kỷ niệm
+buồn. Tôi góp nhặt những post của bác về chuyện tình của mình ở phía dưới, để
+anh em hiểu thêm về những kỷ niệm của bác. Trong truyện của bác, nhiều khi nhắc
+đến những kỷ niệm xưa, chính là những chuyện này
+
+> Bắt đầu từ đây, danh xưng "tôi" là của bác Saul, không phải để chỉ người biên
+tập nữa
+
 
 ### Chuyện tình cảm của tôi
 
@@ -448,7 +485,7 @@ Tôi ra xe lái về quán bia Legend. Vừa đi vừa nghĩ về việc sắp t
 ### [Ngoại truyện - Bản chất không phải là mua dâm](https://vozforums.com/showpost.php?p=141730829&postcount=758)
 > Originally Posted by fqminh  View Post
 
-> Vấn đề là ông kia k mua dâm mà là bỏ một cục rước e này về với mẹ giờ có bắt thì em này cũng trên 16 mà ông kia đâu có trả tiền mỗi lần chịch đâu nên không sợ 
+> Vấn đề là ông kia k mua dâm mà là bỏ một cục rước e này về với mẹ giờ có bắt thì em này cũng trên 16 mà ông kia đâu có trả tiền mỗi lần chịch đâu nên không sợ
 
 Các anh cứ đọc hết truyện, không có cái gì gọi là mua dâm, cưỡng ép cả. Đơn thuần chỉ là tình yêu đôi lứa và khao khát bản năng.
 
@@ -513,7 +550,7 @@ Sáng sủa hơn, mà nhìn như con teen dẩm. Vào kia bố bắt đội khă
 
 Rồi trên đường ra Chùa Bộc nó huyên tha huyên thuyên chuyện cắt tóc làm mặt. Đến nơi, đéo hiểu sao tụi HN ko ngủ ah, hơn 10h đêm rồi vẫn nườm nượp đi xem quần áo. Tôi quay sang con bé đã thấy nó dán mắt vào 1 bộ quần áo con ma nơ canh đang mặc, tôi bảo nó :
 
-- Cháu cứ nhờ nhân viên tư vấn cho, thích bộ cứ lấy bộ đấy. 
+- Cháu cứ nhờ nhân viên tư vấn cho, thích bộ cứ lấy bộ đấy.
 
 Nó hớn hở lắm, từ khi gặp nó đến giờ chưa bao giờ tôi thấy nó vui vẻ như lúc này. Nó cứ thử xong 1 bộ lại ra khoe tôi, nhưng lúc thử quần áo lót thì đéo thấy khoe, tộc đéo gì khôn thế. Cuối cùng thì cũng mua đủ cho nó va li, quần áo, giầy dép các kiểu. Qua 1 chỗ góc vỉa hè, thấy nó sà vào nhặt bịch băng vệ sinh, tôi cười hỏi :
 
@@ -545,7 +582,7 @@ Lúc quay ra, không nghe thấy tiếng máy sấy, thấy em nó hí hoáy cá
 - Nó nóng quá tự ngắt ấy mà, em phải để nguội mới dùng được tiếp.
 Em nó có vẻ thất vọng, bóp bóp cái áo ngực thấy rỉ ra đôi giọt nước nhưng vẫn có ý mặc vào. Tôi mới bảo :
 - Không được, em mặc ẩm vậy lỡ bị nấm rồi suốt ngày gãi gãi chỗ đấy thì ai mà chịu được. Với cả em định mặc cái bộ quần áo nhỏ nước tong tong trong kia đi chơi sao?
-Em nó mặt buồn so : 
+Em nó mặt buồn so :
 - Vậy chắc cả ngày hôm nay ở nhà sấy quần áo quá.
 - Không sao, giờ thế này, mới hơn 6h sáng thôi, giờ anh xuống lấy buffe sáng lên mình ăn sáng, đợi 7h người ta mở cửa, anh mang quần áo của em ra tiệm để người ta hong khô cho nhanh, chắc 8h là xong thôi. Rồi sáng nay mình đi Langbiang, vòng ra hồ Suối Vàng ăn trưa ở đó rồi chiều về Thung Lũng Tình Yêu, xong ra hồ Tuyền Lâm, uống cà phê chồn và đợi hoàng hôn. Được không em?
 - Dạ, nghe anh kể đã thấy hấp dẫn rồi.
@@ -561,7 +598,7 @@ Tôi ở khách sạn này quen tới mức, nhiều khi tiếp đối tác nh�
 - Anh này...đưa em nói chuyện với nhân viên.
 Tôi đành đưa máy, 1 lúc sau em nó đưa đúng size ra, không quên nhìn tôi cười kiểu rất gì và này nọ:
 - Nhất anh nha.
-Mà tôi gặng hỏi nó cũng ko nói. Xong tôi lại sang cửa hàng bán đồ lót cách đấy không xa. Tôi chọn cho em nó đc 1 cái quần lót, không vấn đề gì, còn áo ngực thì phức tạp hơn, con bé nhân viên bảo phải ít nhất biết size vòng 1, mà tôi gọi hỏi em nó nhất định không nói. Cuối cùng em nhân viên tư vấn cho tôi, lấy cho em nó 1 cái áo lót kiểu áo quây là chắc cú. Chắc chả phải nói, bộ đồ lót tôi mua cho em nó chính là bộ như trên bức ảnh các ông đã xem. Mệt quá , các ông ủng hộ thì rảnh tôi biên tiếp. 
+Mà tôi gặng hỏi nó cũng ko nói. Xong tôi lại sang cửa hàng bán đồ lót cách đấy không xa. Tôi chọn cho em nó đc 1 cái quần lót, không vấn đề gì, còn áo ngực thì phức tạp hơn, con bé nhân viên bảo phải ít nhất biết size vòng 1, mà tôi gọi hỏi em nó nhất định không nói. Cuối cùng em nhân viên tư vấn cho tôi, lấy cho em nó 1 cái áo lót kiểu áo quây là chắc cú. Chắc chả phải nói, bộ đồ lót tôi mua cho em nó chính là bộ như trên bức ảnh các ông đã xem. Mệt quá , các ông ủng hộ thì rảnh tôi biên tiếp.
 
 ![O3zu7e.jpg](imgs/O3zu7e.jpg)
 
@@ -578,7 +615,7 @@ Các ông nói tôi chế tôi rất là buồn. Tôi năm nay cũng hơn 30 tu�
 
 ## [Tình địch](https://vozforums.com/showpost.php?p=129647173&postcount=25)
 Thanks bác đã ủng hộ, thôi thì hầu bác nốt câu chuyện.
-Mua xong quần áo cho em nó, tôi lại ra tiệm giặt là ở đầu Nguyễn Văn Cừ giặt lại và sấy khô. Đến tận gần 9h mới xong để về lại khách sạn. Lúc chờ lấy quần áo, tôi cứ nghĩ vẩn vơ, có khi nào em nó sau cơn say và hết cơn giận lại hối hận rồi gọi người yêu đến đón về không, gặp đứa vớ vẩn nó còn vu vạ cho tôi thì bỏ mẹ. Khi về tới khách sạn, mới đỗ xe ngoài sân, em lễ tân đã chạy ra nói ngay với tôi. 
+Mua xong quần áo cho em nó, tôi lại ra tiệm giặt là ở đầu Nguyễn Văn Cừ giặt lại và sấy khô. Đến tận gần 9h mới xong để về lại khách sạn. Lúc chờ lấy quần áo, tôi cứ nghĩ vẩn vơ, có khi nào em nó sau cơn say và hết cơn giận lại hối hận rồi gọi người yêu đến đón về không, gặp đứa vớ vẩn nó còn vu vạ cho tôi thì bỏ mẹ. Khi về tới khách sạn, mới đỗ xe ngoài sân, em lễ tân đã chạy ra nói ngay với tôi.
 - Có chuyện rồi anh, anh đừng vào thì hơn.
 - Sao?
 - Anh cặp kè thế nào mà người yêu hay chồng cái em anh dẫn về hôm qua đang đến tìm kìa. Em không cho lên, nó bảo ngồi đây chờ đến khi xuống mới thôi.
@@ -594,7 +631,7 @@ Nói đoạn, tôi túm cổ áo nó xách lên rồi tát 1 cái bay kính, l�
 - Tao là anh họ nó, giờ mày muốn sao? ( Không biết nó có nghi ngờ sao con bé Xuân Anh mãi An Giang lại có thằng anh họ giọng Bắc sệt làm bảo kê ở Đà Lạt không nữa)
 - Anh cho em gặp Xuân Anh, rồi anh đánh chửi gì em cũng chịu ạ.
 - Thế làm sao mày biết Xuân Anh ở đây?
-- Dạ sáng Xuân Anh vào mạng, em định vị được. 
+- Dạ sáng Xuân Anh vào mạng, em định vị được.
 - Ơ địt mẹ, thằng này còn theo dõi cả em tao nữa. Bố giết mày luôn chứ đánh không ah. Tôi lại đạp nó lăn lông lốc, thằng bé tái mặt định chạy. Đoạn quay ra em lễ tân nháy mắt 1 cái:
 - Thôi chỗ em làm ăn, gọi giúp anh thằng Quân chùa với Thành chột đến xử luôn thằng này đi cho anh. Rồi tôi đi lên lầu, qua chỗ em lễ tân dúi vào tay em 200k bảo xử nốt cho anh. Nó lườm tôi 1 cái tỏ vẻ đắc ý lắm, rồi đi ra chỗ thằng kia, nói gì đó, thấy thằng kia ba chân bốn cẳng mất dạng. Rồi thấy nó rũ ra cười, tôi mới yên tâm đi lên phòng.
 Vừa gõ cửa chưa dứt thì em đã mở ra rồi, hóa ra em đứng ngay cửa để hóng chuyện vừa xong. Em ôm lấy tôi, rúc vào ngực tôi, rung lên bần bật. Chẳng biết cười hay khóc nữa, chỉ thấy nước mắt thấm qua áo. Tôi ôm lấy đầu em, ghì chặt vào ngực mình. Em nói trong nức nở :
