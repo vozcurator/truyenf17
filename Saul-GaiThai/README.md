@@ -618,6 +618,57 @@ Nó nghẹn ngào, nấc cả lên:
 Nó không níu tay nữa mà chuyển sang ôm lưng tôi :
 - Cháu xin lỗi, chú đừng đi. Chú đừng bỏ cháu 1 mình, chú muốn cháu làm gì cũng được.
 
+## [Kết](https://vozforums.com/showpost.php?p=141780149&postcount=174)
+
+Thôi ai cũng phải cày cuốc kiếm miếng ăn, và cuộc vui nào cũng kết thúc. Tôi ráng viết nốt phần kết vậy.
+
+... 20 tết, tôi bay ra Bắc, rồi vội vã lái xe về Hải Dương. Xách 1 giỏ quà tết lên ủy ban xã, tôi lại được giúp đỡ nhiệt tình :
+- Ah, ông Hưng chứ không phải Hùng, Hưng què, trước lái xe xong nợ nần thế nào ấy bị bọn nó từ Lâm Đồng kéo ra nện què chân , rồi siết nợ hết đồ đạc. Nhà khánh kiệt, vợ lại phát hiện có vợ bé trong đấy nên ly dị rồi. Ông thuê nhà nhỏ ở mặt đường cái, giờ sửa xe máy, máy bơm linh tinh. Anh cứ ra đường lớn rẽ phải 1 tí là thấy, nhà bên trái ấy.
+Tôi cảm ơn rồi cũng dễ dàng tìm được nhà ông Hùng :
+- Cậu sửa gì thế ?
+- Sửa lỗi của anh. Anh có nhớ chị X không. Thấy ông biến sắc mặt, tôi bồi thêm :
+- Cả cái Linh nữa, nó vẫn nhớ hồi nhỏ nghịch búng cái mụn thừa ở cằm anh.
+Ông Hùng trả lời vô hồn :
+- Giờ hai mẹ con nó thế nào rồi ?
+Tôi cười nửa miệng :
+- Mẹ nó thì vẫn làm cave, ít khách rồi, còn cái Linh cũng sắp làm cave, mặt xinh, mông nở, ngực to chắc sẽ đông khách.
+Ông Hùng gầm lên nhưng đéo dám lao đến :
+- Cái đcmm, thích chết không.
+- Cái dcm nhà ông ấy, sống như cái con đầu buồi, trốn như 1 con chó, để vợ phải làm cave nuôi con, cái Linh thì chịu bao tủi nhục. Ông có gan đánh tôi thì đã đéo có gan để vợ con khổ đến thế.
+Ông Hùng buông thanh sắt, ôm mặt khóc. Tôi dịu giọng :
+- Thôi anh, nửa đời người sai lầm rồi, nửa đời sau sửa lại. Đừng để mẹ con nó khổ thêm nữa, bù đắp lại đi. Giờ ai cũng cô quạnh, sao ko nương tựa vào nhau mà sống.
+- Cũng muốn thế, mà giờ cậu bảo tôi nuôi thân còn không xong, lại làm khổ hai mẹ con nó.
+- Làm ăn đéo gì cái đất này mà chẳng đói, anh vào Nam đi, ngày sửa dăm cái xe máy là đủ sống rồi.
+- Bây giờ hai mẹ con nó ở đâu?
+- Phú Mỹ, Vũng Tàu. Tôi thuê lại 1 bãi tập kết máy móc của công ty, ngay con lộ chính, hai mẹ con đang ở đấy, giúp tôi dọn dẹp văn phòng, chủ yếu là bán cà phê tạp hóa cho công nhân khu đó. Cái Linh đang ở Sài Gòn học cắt tóc gội đầu trang điểm, 6 tháng nữa xong tôi mở cho 1 quán nhỏ cũng ở đó luôn. Hai mẹ con nó ổn rồi, chỉ thiếu 1 người đàn ông. Ông vào đó vá sửa xe là trọn vẹn.
+- Nhưng hai mẹ con còn hận tôi không. Có chấp nhận tôi không.
+- Chưa bao giờ hận ông cả, còn chấp nhận hay không thì còn tùy ông sống ntn, vớ vẩn là tôi đuổi ông đi chứ không phải hai mẹ con nó. Giờ ông bán đồng nát đống này đi, tôi đặt xe giường nằm Vũng Tàu cho ông rồi, tối thứ 3 lên xe, bảo thằng phụ xe cho xuống địa chỉ này, vào mà ăn tết với hai mẹ con nó.
+- Cậu...
+- Khỏi cảm ơn, vào đấy sau này thấy thằng nào vớ vẩn đến tán em Linh thì vác dao đuổi cho tôi, còn thằng nào tử tế thì pha cà phê mời nó. Còn một việc nữa, thằng Ánh trước cùng đội xe của ông giờ ở đâu?
+- Nó nghiện xong bị đuổi việc rồi, về dật dẹo 2 năm thì sốc thuốc chết ngoài bờ mương.
+- Đm, thằng chó, mày chết khó coi vậy là đáng lắm. Biết mộ nó không, tôi qua đái một bãi.
+- Thôi cậu...
+...27 tết.
+- Em ở cái phòng này có nóng không, để anh lắp điều hòa. Nó được mỗi cái gần chỗ em học.
+- Thôi anh, còn mấy tháng nữa là em học xong rồi.
+- Uhm, dọn đồ đi, anh mang xuống xe dần cho.
+- Mà anh, chốc về gặp bố ko biết sẽ thế nào nhỉ, giờ em chưa có cảm giác gì, nhưng lúc đó có khi em khóc đấy.
+- Thì em cứ búng vào cái thịt thừa ở cằm ấy, với cả lâu rồi không khóc, khóc đi cho sạch mắt.
+- Ai bảo anh thế, hôm rồi anh ra Bắc em tưởng anh về ăn tết luôn, khóc sưng cả mắt. Giá mà anh ở lại ăn tết với em. 
+Tôi không nói gì, lầm lũi khuân đố xuống xe.
+- Hết đồ rồi anh ạ, anh đầy mồ hôi kìa, lại em lau cho. Ơ kìa anh, đừng anh... ơ kìa anh, sao lại dừng...
+....
+- Nãy em la to thế, hàng xóm ghen tỵ chết. Ơ, sao tự nhiên lại khóc. 
+- Sau này ấy, anh lấy vợ có con, chắc em sẽ rất yêu quý nó. Giá mà em có con được, em sẽ xin anh 1 đứa con, thế là đủ, không cần gì khác.
+- Mẹ, thằng chó Ánh ấy chết rồi, nếu ko anh sẽ làm nó sống không bằng chết.
+- Sau này em sẽ xin con nuôi, hoặc lấy 1 người đã có con rồi. 
+- Sau này gì nữa, chẳng phải em vẫn đang tìm hiểu nhau với anh chủ tiệm tóc góa vợ, 1 nách hai con đấy ah. Đêm qua anh còn thấy nhắn tin chúc em ngủ ngon với nhớ em nhiều.
+- Em chưa nhận lời, ngày nào anh còn bên em, em sẽ ko nhận lời 1 ai khác cả. Kìa anh cũng khóc ah?
+- Không là bụi bay vào mắt thôi, ngày mai mình sẽ chia tay, đã đến lúc rồi, tốt cho anh và tốt cho em.
+... 10 tháng sau
+- Vợ chồng tôi đến chào cậu, chúng tôi nhớ mãi ơn cậu đã giúp gia đình chúng tôi, chúng tôi dọn về Gia Nghĩa cho gần vợ chồng con gái, tụi nó mới mở tiệm tóc cũng lớn. Trước hôm cưới nó không thấy cậu đâu khóc cả đêm. Có dịp cậu lên thăm chúng tôi nhé.
+- Anh chị đi mạnh khỏe, nhớ sau này đừng nhắc đến tôi nữa.
+
 ## [Lan quyên - Câu chuyện Đà Lạt]()
 
 > Đây là một serie bài của bác Saul viết từ tháng 11 năm 2017, liên quan tới một
