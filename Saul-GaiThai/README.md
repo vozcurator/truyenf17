@@ -648,6 +648,7 @@ Tôi cười nửa miệng :
 - Nó nghiện xong bị đuổi việc rồi, về dật dẹo 2 năm thì sốc thuốc chết ngoài bờ mương.
 - Đm, thằng chó, mày chết khó coi vậy là đáng lắm. Biết mộ nó không, tôi qua đái một bãi.
 - Thôi cậu...
+
 ...27 tết.
 - Em ở cái phòng này có nóng không, để anh lắp điều hòa. Nó được mỗi cái gần chỗ em học.
 - Thôi anh, còn mấy tháng nữa là em học xong rồi.
@@ -657,7 +658,9 @@ Tôi cười nửa miệng :
 - Ai bảo anh thế, hôm rồi anh ra Bắc em tưởng anh về ăn tết luôn, khóc sưng cả mắt. Giá mà anh ở lại ăn tết với em. 
 Tôi không nói gì, lầm lũi khuân đố xuống xe.
 - Hết đồ rồi anh ạ, anh đầy mồ hôi kìa, lại em lau cho. Ơ kìa anh, đừng anh... ơ kìa anh, sao lại dừng...
+
 ....
+
 - Nãy em la to thế, hàng xóm ghen tỵ chết. Ơ, sao tự nhiên lại khóc. 
 - Sau này ấy, anh lấy vợ có con, chắc em sẽ rất yêu quý nó. Giá mà em có con được, em sẽ xin anh 1 đứa con, thế là đủ, không cần gì khác.
 - Mẹ, thằng chó Ánh ấy chết rồi, nếu ko anh sẽ làm nó sống không bằng chết.
@@ -665,7 +668,9 @@ Tôi không nói gì, lầm lũi khuân đố xuống xe.
 - Sau này gì nữa, chẳng phải em vẫn đang tìm hiểu nhau với anh chủ tiệm tóc góa vợ, 1 nách hai con đấy ah. Đêm qua anh còn thấy nhắn tin chúc em ngủ ngon với nhớ em nhiều.
 - Em chưa nhận lời, ngày nào anh còn bên em, em sẽ ko nhận lời 1 ai khác cả. Kìa anh cũng khóc ah?
 - Không là bụi bay vào mắt thôi, ngày mai mình sẽ chia tay, đã đến lúc rồi, tốt cho anh và tốt cho em.
+
 ... 10 tháng sau
+
 - Vợ chồng tôi đến chào cậu, chúng tôi nhớ mãi ơn cậu đã giúp gia đình chúng tôi, chúng tôi dọn về Gia Nghĩa cho gần vợ chồng con gái, tụi nó mới mở tiệm tóc cũng lớn. Trước hôm cưới nó không thấy cậu đâu khóc cả đêm. Có dịp cậu lên thăm chúng tôi nhé.
 - Anh chị đi mạnh khỏe, nhớ sau này đừng nhắc đến tôi nữa.
 
